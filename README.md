@@ -1565,7 +1565,6 @@ AMD的原因是什么？
 
 原文地址：[不同人群，应该如何选择人工泪液？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650448212&idx=1&sn=536efe6dc2bd30bca4c653ac7aa23939&chksm=87d572afb0a2fbb9836912f77620ffbc7d6374126ac9bdbcfed52fec9302209b15465d5140d1&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
