@@ -25,6 +25,14 @@ Q
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
+
+
+
+
+
+
+
 
 
 
@@ -50,21 +58,21 @@ Q
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-现在的变异株，毒力没那么强了，但发病2周之内会让成年人和老年人虚弱。**我自己的感受是**
-①高烧36小时导致肌肉脱水（体重下降）
-②感染第一周没胃口、消耗肌肉（体重下降）
-③卧床1周，肌肉变松软
-三重因素导致人很累，像是跑了马拉松。**我的对策是多吃肉！**
-① 每天500毫升鲜牛奶
-② 每天2个鸡蛋
+现在的变异株，毒力没那么强了，但发病2周之内会让成年人和老年人虚弱。**我自己的感受是**  
+①高烧36小时导致肌肉脱水（体重下降）  
+②感染第一周没胃口、消耗肌肉（体重下降）  
+③卧床1周，肌肉变松软  
+三重因素导致人很累，像是跑了马拉松。**我的对策是多吃肉！**  
+① 每天500毫升鲜牛奶  
+② 每天2个鸡蛋  
 ③ 午餐排骨，晚餐炖牛肉
 
-我本人13号发病，26号就生龙活虎了。除了休病假影响收入，没有其它后遗症。
+我本人13号发病，26号就生龙活虎了。除了休病假影响收入，没有其它后遗症。  
 人类是肉食动物！
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -107,7 +115,7 @@ Q
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -147,17 +155,17 @@ Q
 
 老太太以一己之力搅和了优秀子女的婚姻。我大姑和我爹，因为明里暗里往原生家庭拿钱，不知道跟配偶吵了多少架。老太太一死，大家都松了一口气。
 
-要了这么多钱，她也没花自己身上，全让大儿子和小儿子啃老了。我大伯的一儿一女，小叔的一儿一女，4个孩子都是在奶奶家长大的，吃喝用度是我爷爷退休金、我爹和我大姑供养的。而且我大伯的大女儿，我的堂姐上大学的所有花销也是奶奶提供的，啃老到23岁。
+要了这么多钱，她也没花自己身上，全让大儿子和小儿子啃老了。我大伯的一儿一女，小叔的一儿一女，4个孩子都是在奶奶家长大的，吃喝用度是我爷爷退休金、我爹和我大姑供养的。而且我大伯的大女儿，我的堂姐上大学的所有花销也是奶奶提供的，啃老到23岁。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
 话说回来，我姐经常梦到奶奶找她。先是梦到奶奶住地洞，说冷。然后我爹这个被洗脑的大孝子就去给奶奶烧一堆纸钱。然后，过了好久，奶奶又托梦了，说住石头房子了，但是没钱花。于是，大孝子又去烧金元宝。后来不断升级，要钱的花样也很多。烧了几次钱，就没找了。**我笑了，怎么奶奶托梦找我呢。**老太太敢找我，我可脾气不好啊，张嘴就来：奶奶～您听我说
 
-堂哥开养鸡场，养了好几个小姐，离婚了！
-小婶跳广场舞，出轨了耶，姘头就是拉二胡的秃头。
-您猜小叔怎么着，也不敢离婚，给扭秧歌的老婆敲大鼓呢，可刺激了！
-还有还有，堂姐也离婚了，带着儿子。
-堂妹还没嫁出去，37岁，您愁不愁？
+堂哥开养鸡场，养了好几个小姐，离婚了！  
+小婶跳广场舞，出轨了耶，姘头就是拉二胡的秃头。  
+您猜小叔怎么着，也不敢离婚，给扭秧歌的老婆敲大鼓呢，可刺激了！  
+还有还有，堂姐也离婚了，带着儿子。  
+堂妹还没嫁出去，37岁，您愁不愁？  
 堂弟找不着媳妇，35岁，惊不惊喜？
 
 我啊，
@@ -168,7 +176,7 @@ Q
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -197,7 +205,7 @@ Q
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-感谢您的提问和信任！
+感谢您的提问和信任！  
 
 接下来，我为您解释儿童近视控制的目的、孩子的近视状况分析和治疗方案。
 
@@ -223,7 +231,7 @@ Q
 
 控制目标
 
-孩子的眼轴是右眼23.64毫米、左眼23.36毫米。大陆地区11岁男孩的平均眼轴是24毫米。您孩子的眼轴比同龄儿童短，没有携带高度近视基因，可以松一口气了。
+孩子的眼轴是右眼23.64毫米、左眼23.36毫米。大陆地区11岁男孩的平均眼轴是24毫米。您孩子的眼轴比同龄儿童短，没有携带高度近视基因，可以松一口气了。  
 
 **【您孩子的近视控制目标】**
 
@@ -236,23 +244,23 @@ Q
 
 **治疗方案**
 
-推测孩子目前的眼轴发育速度在0.40.6毫米/年，因此我给孩子制定的治疗方案：
+推测孩子目前的眼轴发育速度在0.4-0.6毫米/年，因此我给孩子制定的治疗方案：
 
 **1\. 生活质量最高的方案：**
 
-右眼戴OK镜+双眼0.01%阿托品滴眼液治疗。
+右眼戴OK镜+双眼0.01%阿托品滴眼液治疗。  
 
-OK镜是晚上戴610小时，白天裸眼视力会达到0.8以上，可以看清黑板小字，不会影响学习。8岁以上的儿童就可以自己戴OK镜了。同时，OK镜可以控制眼轴，每年减少0.20.3毫米的眼轴增幅。0.01%阿托品滴眼液睡前滴眼睛，每天一次、每眼一滴即可。0.01%阿托品滴眼液的副作用很轻，孩子几乎感觉不到异样。
+OK镜是晚上戴6-10小时，白天裸眼视力会达到0.8以上，可以看清黑板小字，不会影响学习。8岁以上的儿童就可以自己戴OK镜了。同时，OK镜可以控制眼轴，每年减少0.2-0.3毫米的眼轴增幅。0.01%阿托品滴眼液睡前滴眼睛，每天一次、每眼一滴即可。0.01%阿托品滴眼液的副作用很轻，孩子几乎感觉不到异样。
 
 **2\. 如果孩子不喜欢戴OK镜：**
 
-由于左眼1.0，孩子能看清黑板小字，因此在左眼视力跌破0.8之前，都可以不戴框架眼镜。因为单焦点的框架眼镜只是帮助近视眼睛看清远处，并不能阻挡未来的近视增涨。
+由于左眼1.0，孩子能看清黑板小字，因此在左眼视力跌破0.8之前，都可以不戴框架眼镜。因为单焦点的框架眼镜只是帮助近视眼睛看清远处，并不能阻挡未来的近视增涨。  
 
 如果孩子不喜欢戴OK镜，或者不方便戴（例如住校），可以右眼滴0.05%阿托品滴眼液（台湾五福），每天一次、右眼滴一次即可。这是最省事儿的治疗方案，但是副作用很明显。孩子会畏光、看书本小字吃力或模糊。因此需要户外戴太阳镜，上体育课戴棒球帽；每天做5分钟的反转拍训练，连续2周。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-无论选择哪一种治疗方案，都需要每3个月测量眼轴，监测治疗效果。只要每季度增幅不超过0.08毫米，就是成功的治疗，否则需要调整治疗方案。在15岁之前，不要任意停戴OK镜，或者停用阿托品滴眼液，否则一定会反弹。
+无论选择哪一种治疗方案，都需要每3个月测量眼轴，监测治疗效果。只要每季度增幅不超过0.08毫米，就是成功的治疗，否则需要调整治疗方案。在15岁之前，不要任意停戴OK镜，或者停用阿托品滴眼液，否则一定会反弹。  
 
 如果今后对治疗效果有疑问，可以威信eyedoctor2020。
 
@@ -264,11 +272,11 @@ OK镜是晚上戴610小时，白天裸眼视力会达到0.8以上，可以看清
 
 2\. Biomed Res Int. 2019 Jul 16;2019:8913582. 
 
-3\. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):7817.
+3\. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):781-7.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -295,7 +303,7 @@ OK镜是晚上戴610小时，白天裸眼视力会达到0.8以上，可以看清
 
 人老了，如果没那么聪明，**最好把晚年生活交给最仁义的子女安排**，别自作主张，给全家人添堵。
 
-我姥爷就是让子女头疼的老人。强势了一辈子，他挣钱养家，要求老婆和子女都听他的，说一不二。子女成年以后，经常不想听他的安排，老头就训斥子女，让大家都不愉快。
+我姥爷就是让子女头疼的老人。强势了一辈子，他挣钱养家，要求老婆和子女都听他的，说一不二。子女成年以后，经常不想听他的安排，老头就训斥子女，让大家都不愉快。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -305,18 +313,18 @@ OK镜是晚上戴610小时，白天裸眼视力会达到0.8以上，可以看清
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-在姥姥姥爷80岁以后，照顾自己变得困难。这时，子女们都希望请保姆照顾老人。老人退休金很高，完全可以支付保姆费用和日常生活开销，而且子女都很忙。我姥爷偏不。他觉得辛苦了一辈子，养大了6个子女，居然都不贴身伺候，让街坊笑话。他想用退休金贴补子女，谁伺候老人，谁拿银行卡，这样肥水不流外人田。问题是，子女们都5060岁了，不缺那几千块钱。于是，我的舅舅舅妈们被迫轮流上门伺候，大家都有不满，但是不好意思说出来。毕竟，舅舅们有的做生意，有的打工，有的公务员，伺候老人的时间成本不一样。
+在姥姥姥爷80岁以后，照顾自己变得困难。这时，子女们都希望请保姆照顾老人。老人退休金很高，完全可以支付保姆费用和日常生活开销，而且子女都很忙。我姥爷偏不。他觉得辛苦了一辈子，养大了6个子女，居然都不贴身伺候，让街坊笑话。他想用退休金贴补子女，谁伺候老人，谁拿银行卡，这样肥水不流外人田。问题是，子女们都50-60岁了，不缺那几千块钱。于是，我的舅舅舅妈们被迫轮流上门伺候，大家都有不满，但是不好意思说出来。毕竟，舅舅们有的做生意，有的打工，有的公务员，伺候老人的时间成本不一样。
 
-姥爷特别不想麻烦子女，88岁亲自给姥姥剪脚趾甲，老眼昏花、戳破了肉，导致伤口愈合困难，需要截趾。
+姥爷特别不想麻烦子女，88岁亲自给姥姥剪脚趾甲，老眼昏花、戳破了肉，导致伤口愈合困难，需要截趾。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-你们看，他要强了一辈子，晚年固执坑苦了老婆和子女。
+你们看，他要强了一辈子，晚年固执坑苦了老婆和子女。  
 我晚年要做个不讨厌的老人，**请保姆，听晚辈的话，不给晚辈添堵。**
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -343,15 +351,15 @@ OK镜是晚上戴610小时，白天裸眼视力会达到0.8以上，可以看清
 
 视交叉上核是我们人类大脑的内在生物钟，有1万个交错连接的神经元。它们可以根据白天和黑夜来调节很多基因的表达水平，因此我们人体就表现出昼夜节律：例如白天肾上腺分泌皮质醇，我们的体温和血压升高，大脑精力充沛，晚上肾上腺休息，血压和体温降低，大脑反应慢，松果体开始分泌褪黑素。
 
-除了大脑皮质，很多器官也受昼夜节律调控，例如肝脏、肾脏、心脏、皮肤和眼睛的视网膜。虽然这些器官是自主自治的，但视交叉上核根据白天黑夜的光照来协调这些器官，使它们的节律可以保持同步。打个比方，人体就像交响乐团，视交叉上核扮演了指挥的角色。
+除了大脑皮质，很多器官也受昼夜节律调控，例如肝脏、肾脏、心脏、皮肤和眼睛的视网膜。虽然这些器官是自主自治的，但视交叉上核根据白天-黑夜的光照来协调这些器官，使它们的节律可以保持同步。打个比方，人体就像交响乐团，视交叉上核扮演了指挥的角色。
 
-光可以改变人类的昼夜节律，因为光可以抑制褪黑素的分泌，因而白天的褪黑素水平很低，而**到了夜间，凌晨124点是根黑素分泌的高峰**(图1)。如果在夜间，眼睛暴露在光照明中，就会抑制正常的褪黑素分泌。我们都知道，熬夜或上夜班、跨越三个时区的长途飞行、看不见光的盲人，他们的生物钟都会素乱，身体也产生各种不适症状。另外，身处现代化社会的我们，每天都在经历着慢性的生物钟紊乱一一夜间的光暴露，例如夜间照明的灯、手机、电视和电脑亮着的屏幕，也会**影响人体褪黑素的分泌，导致昼夜节律的堆迟 (白天犯闲，晚上警醒)**，而目很多人的社亦活动都是通卡睡前使用手机来完成的，其至是看手机入睡，导致人体每天都在经历着慢性的倒时差，这种现象被称为社交倒时差。可能大家也有所体会，长期看着手机入睡等夜间光暴露行为，导致白天疲劳、夜间入睡慢、慢性失眠、食欲差、抑郁情绪等。
+光可以改变人类的昼夜节律，因为光可以抑制褪黑素的分泌，因而白天的褪黑素水平很低，而**到了夜间，凌晨12-4点是根黑素分泌的高峰**(图1)。如果在夜间，眼睛暴露在光照明中，就会抑制正常的褪黑素分泌。我们都知道，熬夜或上夜班、跨越三个时区的长途飞行、看不见光的盲人，他们的生物钟都会素乱，身体也产生各种不适症状。另外，身处现代化社会的我们，每天都在经历着慢性的生物钟紊乱一一夜间的光暴露，例如夜间照明的灯、手机、电视和电脑亮着的屏幕，也会**影响人体褪黑素的分泌，导致昼夜节律的堆迟 (白天犯闲，晚上警醒)**，而目很多人的社亦活动都是通卡睡前使用手机来完成的，其至是看手机入睡，导致人体每天都在经历着慢性的倒时差，这种现象被称为社交倒时差。可能大家也有所体会，长期看着手机入睡等夜间光暴露行为，导致白天疲劳、夜间入睡慢、慢性失眠、食欲差、抑郁情绪等。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DicNib6rTxly52Wibpu1Zd0mVKVKgIiaicVBH4ibKxK0FeYKrWClkqTke7vAZzQD8tNmQx8GHzvV5eaNpQ/640?wx_fmt=png)
 
 **市面上有很多褪黑素的非处方保健品，哪些人群可以吃呢？**
 
-Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相比安慰剂，补充外源性的褪黑素（例如口服、喷雾、透皮贴剂），可以显著缩短原发性失眠患者和睡眠周期延迟症候群患者的睡眠潜伏期，也可以有效调节盲人的睡眠觉醒周期。也就是说，**如果您晚上看手机和iPad导致越看越清醒，入睡时间推迟，可以睡前口服褪黑素片，提高睡眠质量**。失眠的盲人也可以睡前吃褪黑素，改善睡眠质量。
+Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相比安慰剂，补充外源性的褪黑素（例如口服、喷雾、透皮贴剂），可以显著缩短原发性失眠患者和睡眠周期延迟症候群患者的睡眠潜伏期，也可以有效调节盲人的睡眠-觉醒周期。也就是说，**如果您晚上看手机和iPad导致越看越清醒，入睡时间推迟，可以睡前口服褪黑素片，提高睡眠质量**。失眠的盲人也可以睡前吃褪黑素，改善睡眠质量。
 
 **那么除了改善睡眠，褪黑素还有哪些作用？**
 
@@ -359,17 +367,17 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 因此，我们需要对褪黑素保持谨慎和旁观态度，可以用它来改善失眠，暂时不要期待其它的效果。
 
-
+  
 
 参考文献：
 
-1\. Sleep Med Rev. 2017 Aug;34:1022. Evidence for the efficacy of melatonin in the treatment of primary adult sleep disorders.
+1\. Sleep Med Rev. 2017 Aug;34:10-22. Evidence for the efficacy of melatonin in the treatment of primary adult sleep disorders.
 
-2\. Life Sci. 2017 Mar 15;173:94106. Association between light at night, melatonin secretion, sleep deprivation, and the internal clock: Health impacts and mechanisms of circadian disruption.
+2\. Life Sci. 2017 Mar 15;173:94-106. Association between light at night, melatonin secretion, sleep deprivation, and the internal clock: Health impacts and mechanisms of circadian disruption.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -400,13 +408,13 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 哪些婴儿容易有鼻泪管阻塞？
 
-早产儿更容易有鼻泪管阻塞，发病率是16%，而足月的婴儿只有3.5%\[1\]。另外，妈妈首次剖宫产分娩的婴儿容易有鼻泪管阻塞。Spaniol等人回顾研究了20002008年386名鼻泪管阻塞儿童的分娩方式，结果发现73.15%鼻泪管阻塞儿童是首次剖宫产分娩的，说明这些婴儿在剖宫产出生时鼻泪管还未发育好\[2\]。这里不是说剖宫产有害，而是与剖宫产的孕周有关，37周并不是最佳孕周，目前有研究认为40周以后分娩更好。
+早产儿更容易有鼻泪管阻塞，发病率是16%，而足月的婴儿只有3.5%\[1\]。另外，妈妈首次剖宫产分娩的婴儿容易有鼻泪管阻塞。Spaniol等人回顾研究了2000-2008年386名鼻泪管阻塞儿童的分娩方式，结果发现73.15%鼻泪管阻塞儿童是首次剖宫产分娩的，说明这些婴儿在剖宫产出生时鼻泪管还未发育好\[2\]。这里不是说剖宫产有害，而是与剖宫产的孕周有关，37周并不是最佳孕周，目前有研究认为40周以后分娩更好。
 
 鼻泪管阻塞的原因是什么？
 
 **1.单纯型的膜性阻塞**
 
-78成的鼻泪管阻塞儿童属于这种，他们在出生时，鼻泪管下端的Hasner瓣膜尚未开放。这种单纯的阻塞可以通过按摩、冲洗或探通来疏通，后者是把水冲到泪道内，利用压力冲开瓣膜，因此可以不需要手术。
+7-8成的鼻泪管阻塞儿童属于这种，他们在出生时，鼻泪管下端的Hasner瓣膜尚未开放。这种单纯的阻塞可以通过按摩、冲洗或探通来疏通，后者是把水冲到泪道内，利用压力冲开瓣膜，因此可以不需要手术。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4C4iaMlRZgX4q44cu6zjibf4csWnINIGoLI6UXCZcg353NvCtMqYpdf0IibghnRynsakycAgWa6vWE4g/640?wx_fmt=png)
 
@@ -444,39 +452,39 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 准确的手术名称是泪小管环行硅橡胶引流管插管术，需要全麻。原理就是把小管插到鼻泪管，通往鼻腔，对阻塞部位进行支撑，周围的细胞开始塑形，最终形成小洞。探通就像打耳洞，一次性扎个洞，插管就是插个耳钉撑着，让耳洞定形。
 
-初次泪道探通的成功率80.3%\[5\]，而初次插管的成功率略高一些，82.2%\[6\]88%\[5\]。1岁以后的探通失败多是由于复杂型阻塞，需要插管手术的可能性很大。大概的手术是这样的：
+初次泪道探通的成功率80.3%\[5\]，而初次插管的成功率略高一些，82.2%\[6\]-88%\[5\]。1岁以后的探通失败多是由于复杂型阻塞，需要插管手术的可能性很大。大概的手术是这样的：
 
 以下鼻泪管阻塞儿童的首次治疗应该考虑插管\[5\]：双眼鼻泪管阻塞、唐氏综合症、既往急性泪囊炎的病史、术前没有长期按摩过、手术中发现阻塞部位很紧、复杂型阻塞。
 
-那么插管多久可以拔管呢？年龄小于2岁的儿童，插管的6周前或后拔管都可以，拔管时间与手术成功率没有显著相关性；而2岁以上的儿童，插管后6周内就拔管，今后再次手术率高一些\[6\]。因此，ElEssawy \[6\]建议2岁以上的插管儿童最少要等3个月。
+那么插管多久可以拔管呢？年龄小于2岁的儿童，插管的6周前或后拔管都可以，拔管时间与手术成功率没有显著相关性；而2岁以上的儿童，插管后6周内就拔管，今后再次手术率高一些\[6\]。因此，El-Essawy \[6\]建议2岁以上的插管儿童最少要等3个月。
 
 家长的纠结问题
 
 **1.保守治疗多久？**
 
-之前说过，早产儿的鼻泪管下端Hasner瓣膜还没有发育好。其实，不只是瓣膜需要发育，骨性鼻泪管在出生后也在发育。在2周龄34月龄的儿童，随着生长发育，骨性鼻泪管增高1.8倍，直径扩宽1.4倍，容积增大4.6倍\[7\]。直径的扩宽大部分发生在6月龄\[7\]。因此，婴儿出生后，鼻泪管阻塞的自愈是由于Hasner瓣膜的开放、鼻泪管的延长、变宽、容积扩张有关。这些给我们的理论启示就是，保守治疗可以持续到孩子6月龄。
+之前说过，早产儿的鼻泪管下端Hasner瓣膜还没有发育好。其实，不只是瓣膜需要发育，骨性鼻泪管在出生后也在发育。在2周龄-34月龄的儿童，随着生长发育，骨性鼻泪管增高1.8倍，直径扩宽1.4倍，容积增大4.6倍\[7\]。直径的扩宽大部分发生在6月龄\[7\]。因此，婴儿出生后，鼻泪管阻塞的自愈是由于Hasner瓣膜的开放、鼻泪管的延长、变宽、容积扩张有关。这些给我们的理论启示就是，保守治疗可以持续到孩子6月龄。
 
-保守治疗6个月以内，66%婴儿会自愈\[13\]；6个月以后仍然阻塞的话，进行探通治疗的成功率是82%\[13\]91%\[8\]。之前说过，少数儿童属于复杂型骨性阻塞，这些儿童在6月龄以后的探通成功率也有52%\[8\]。所以，积极探通治疗的结果非常乐观！
+保守治疗6个月以内，66%婴儿会自愈\[13\]；6个月以后仍然阻塞的话，进行探通治疗的成功率是82%\[13\]-91%\[8\]。之前说过，少数儿童属于复杂型骨性阻塞，这些儿童在6月龄以后的探通成功率也有52%\[8\]。所以，积极探通治疗的结果非常乐观！
 
 **2.最晚什么时候做泪道探通？**
 
-不同年龄段，612月龄的成功率为78%\[10\]，912月龄的治愈率为91%\[8\]，12岁的治愈率为79%\[10\]89%\[8\]，23岁的成功率79%\[10\]，34岁的成功率56%\[10\]。我们可以大致看出，在3岁以后，鼻泪管阻塞儿童的探通成功率只有一半了。Arora等人\[9\]认为手术年龄至关重要：如果在3岁以后才进行第一次探通，手术成功率会显著降低。一项多中心、非随机的前瞻性研究认为在6月龄3岁之间进行探通，不影响成功率\[10\]。因此，如果家长非要坚持等待，也可以。
+不同年龄段，6-12月龄的成功率为78%\[10\]，9-12月龄的治愈率为91%\[8\]，1-2岁的治愈率为79%\[10\]-89%\[8\]，2-3岁的成功率79%\[10\]，3-4岁的成功率56%\[10\]。我们可以大致看出，在3岁以后，鼻泪管阻塞儿童的探通成功率只有一半了。Arora等人\[9\]认为手术年龄至关重要：如果在3岁以后才进行第一次探通，手术成功率会显著降低。一项多中心、非随机的前瞻性研究认为在6月龄-3岁之间进行探通，不影响成功率\[10\]。因此，如果家长非要坚持等待，也可以。
 
 但是，等待是有成本的：反复的泪道感染、每天都要进行按摩、孩子流泪和分泌物对自信心的负面影响、不时去医院、家长请假、医药开销等等。例如，国外有研究发现，泪道探通的花费是$562，而保守治疗是$701\[13\]，可见选择积极的泪道探通其实花费更少。而且相比探通的婴儿，保守治疗的婴儿会持续流泪和/或分泌物多3个月以上\[13\]，更遭罪。因此，我是支持积极探通治疗的。
 
 **3. 单眼和双眼阻塞的成功率也不同**
 
-615月龄的婴儿，单眼阻塞的探通成功率80%\[11\]，双眼阻塞的探通成功率为63%\[11\] 66%\[12\]。1岁以内的双眼鼻泪管阻塞婴儿，也可以选择保守治疗，76%会自愈\[12\]。
+6-15月龄的婴儿，单眼阻塞的探通成功率80%\[11\]，双眼阻塞的探通成功率为63%\[11\]- 66%\[12\]。1岁以内的双眼鼻泪管阻塞婴儿，也可以选择保守治疗，76%会自愈\[12\]。
 
 鼻泪管阻塞的儿童容易有弱视
 
-健康儿童的弱视风险只有1.6%3.6%\[14\]。Matta等人\[14\]评估3岁以下鼻泪管阻塞儿童的弱视风险，结果发现22%鼻泪管阻塞儿童有发展为弱视的风险，他们中63%今后需要弱视治疗。那么1岁以内自愈或探通成功会不会降低弱视的风险？有一项来自美国著名的梅约诊所的研究\[15\]，在一岁以内自愈的鼻泪管阻塞儿童9%存在屈光参差和弱视的风险。如果1岁以上仍然存在鼻泪管阻塞呢？也逃不掉弱视。9.46 %的1岁以上患儿存在弱视的风险，鼻泪管阻塞的患眼比健康眼要远视\[16\]。另外，相比双眼鼻泪管阻塞（弱视风险3.6 %），单眼鼻泪管阻塞的儿童发生屈光参差的风险更高（7.6%），远视度数也高\[17\]。
+健康儿童的弱视风险只有1.6%-3.6%\[14\]。Matta等人\[14\]评估3岁以下鼻泪管阻塞儿童的弱视风险，结果发现22%鼻泪管阻塞儿童有发展为弱视的风险，他们中63%今后需要弱视治疗。那么1岁以内自愈或探通成功会不会降低弱视的风险？有一项来自美国著名的梅约诊所的研究\[15\]，在一岁以内自愈的鼻泪管阻塞儿童9%存在屈光参差和弱视的风险。如果1岁以上仍然存在鼻泪管阻塞呢？也逃不掉弱视。9.46 %的1岁以上患儿存在弱视的风险，鼻泪管阻塞的患眼比健康眼要远视\[16\]。另外，相比双眼鼻泪管阻塞（弱视风险3.6 %），单眼鼻泪管阻塞的儿童发生屈光参差的风险更高（7.6%），远视度数也高\[17\]。
 
 可见，鼻泪管阻塞不只是泪道发育的异常，眼球的屈光系统也存在异常。需要我们留心。不是疏通成功就治愈了，1岁时就要检查视力，而且需要每年随访视力的变化，真是操不完的心啊。
 
 最后总结
 
-*   78成的鼻泪管阻塞属于单纯型的阻塞，由于出生时鼻泪管下端的瓣膜尚未开放。自愈率也高。
+*   7-8成的鼻泪管阻塞属于单纯型的阻塞，由于出生时鼻泪管下端的瓣膜尚未开放。自愈率也高。
 
 *   如果泪道感染不频繁，保守治疗可以坚持到孩子6个月，需要每天按摩。感染时，使用抗生素滴眼液。
 
@@ -490,43 +498,43 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 **参考文献：**
 
-1\. Lorena SH, Silva JA, Scarpi MJ.Congenital nasolacrimal duct obstruction in premature children. J PediatrOphthalmol Strabismus. 2013;50(4):23944.
+1\. Lorena SH, Silva JA, Scarpi MJ.Congenital nasolacrimal duct obstruction in premature children. J PediatrOphthalmol Strabismus. 2013;50(4):239-44.
 
-2\. Spaniol K, Stupp T, Melcher C, et al. Associationbetween congenital nasolacrimal duct obstruction and delivery by cesareansection. Am J Perinatol. 2015;32(3):2716.
+2\. Spaniol K, Stupp T, Melcher C, et al. Associationbetween congenital nasolacrimal duct obstruction and delivery by cesareansection. Am J Perinatol. 2015;32(3):271-6.
 
-3\. Weiss AH, Baran F, Kelly J. Congenitalnasolacrimal duct obstruction: delineation of anatomic abnormalities with3dimensional reconstruction. Arch Ophthalmol. 2012 Jul;130(7):8428.
+3\. Weiss AH, Baran F, Kelly J. Congenitalnasolacrimal duct obstruction: delineation of anatomic abnormalities with3-dimensional reconstruction. Arch Ophthalmol. 2012 Jul;130(7):842-8.
 
-4\. Davidson AJ, Disma N, de Graaff JC, etal. Neurodevelopmental outcome at 2 years of age after general anaesthesia andawakeregional anaesthesia in infancy (GAS): an international multicentre,randomised controlled trial. Lancet. 2016;387(10015):23950.
+4\. Davidson AJ, Disma N, de Graaff JC, etal. Neurodevelopmental outcome at 2 years of age after general anaesthesia andawake-regional anaesthesia in infancy (GAS): an international multicentre,randomised controlled trial. Lancet. 2016;387(10015):239-50.
 
-5\. AlFaky YH, AlSobaie N, Mousa A, et al.Evaluation of treatment modalities and prognostic factors in children withcongenital nasolacrimal duct obstruction. J AAPOS. 2012;16(1):537.
+5\. Al-Faky YH, Al-Sobaie N, Mousa A, et al.Evaluation of treatment modalities and prognostic factors in children withcongenital nasolacrimal duct obstruction. J AAPOS. 2012;16(1):53-7.
 
-6\. ElEssawy R. Effect of timing ofsilicone tube removal on the result of duct intubation in children withcongenital nasolacrimal duct obstruction. Ophthal Plast Reconstr Surg.2013;29(1):4850.
+6\. El-Essawy R. Effect of timing ofsilicone tube removal on the result of duct intubation in children withcongenital nasolacrimal duct obstruction. Ophthal Plast Reconstr Surg.2013;29(1):48-50.
 
-7\. Moscato EE, Kelly JP, Weiss A.Developmental anatomy of the nasolacrimal duct: implications for congenitalobstruction. Ophthalmology. 2010;117(12):24304.
+7\. Moscato EE, Kelly JP, Weiss A.Developmental anatomy of the nasolacrimal duct: implications for congenitalobstruction. Ophthalmology. 2010;117(12):2430-4.
 
-8\. Medghalchi A, Mohammadi MJ, SoltaniMoghadam R, et al. Results of nasolacrimal duct probing in children between948 months. Acta Med Iran. 2014;52(7):54551.
+8\. Medghalchi A, Mohammadi MJ, SoltaniMoghadam R, et al. Results of nasolacrimal duct probing in children between9-48 months. Acta Med Iran. 2014;52(7):545-51.
 
-9\. Arora S, Koushan K, Harvey JT. Successrates of primary probing for congenital nasolacrimal obstruction in children. JAAPOS. 2012;16(2):1736.
+9\. Arora S, Koushan K, Harvey JT. Successrates of primary probing for congenital nasolacrimal obstruction in children. JAAPOS. 2012;16(2):173-6.
 
-10\. Pediatric Eye Disease InvestigatorGroup, Repka MX, Chandler DL, et al. Primary treatment of nasolacrimal ductobstruction with probing in children younger than 4 years. Ophthalmology.2008;115(3):577584.e3.
+10\. Pediatric Eye Disease InvestigatorGroup, Repka MX, Chandler DL, et al. Primary treatment of nasolacrimal ductobstruction with probing in children younger than 4 years. Ophthalmology.2008;115(3):577-584.e3.
 
-11\. Miller AM, Chandler DL, Repka MX, etal. Office probing for treatment of nasolacrimal duct obstruction in infants. JAAPOS. 2014;18(1):2630.
+11\. Miller AM, Chandler DL, Repka MX, etal. Office probing for treatment of nasolacrimal duct obstruction in infants. JAAPOS. 2014;18(1):26-30.
 
-12\. Lee KA, Chandler DL, Repka MX, et al. Acomparison of treatment approaches for bilateral congenital nasolacrimal ductobstruction. Am J Ophthalmol. 2013;156(5):104550.
+12\. Lee KA, Chandler DL, Repka MX, et al. Acomparison of treatment approaches for bilateral congenital nasolacrimal ductobstruction. Am J Ophthalmol. 2013;156(5):1045-50.
 
-13\. Pediatric Eye Disease InvestigatorGroup. A randomized trial comparing the costeffectiveness of 2 approaches fortreating unilateral nasolacrimal duct obstruction. Arch Ophthalmol.2012;130(12):152533.
+13\. Pediatric Eye Disease InvestigatorGroup. A randomized trial comparing the cost-effectiveness of 2 approaches fortreating unilateral nasolacrimal duct obstruction. Arch Ophthalmol.2012;130(12):1525-33.
 
-14\. Matta NS, Silbert DI. High prevalenceof amblyopia risk factors in preverbal children with nasolacrimal ductobstruction. J AAPOS. 2011;15(4):3502.
+14\. Matta NS, Silbert DI. High prevalenceof amblyopia risk factors in preverbal children with nasolacrimal ductobstruction. J AAPOS. 2011;15(4):350-2.
 
-15\. Pyi Son MK, Hodge DO, Mohney BG. Timingof congenital dacryostenosis resolution and the development of anisometropia.Br J Ophthalmol. 2014;98(8):11125.
+15\. Pyi Son MK, Hodge DO, Mohney BG. Timingof congenital dacryostenosis resolution and the development of anisometropia.Br J Ophthalmol. 2014;98(8):1112-5.
 
-16\. Eshraghi B, Akbari MR, Fard MA, et al.The prevalence of amblyogenic factors in children with persistent congenitalnasolacrimal duct obstruction. Graefes Arch Clin Exp Ophthalmol.2014;252(11):184752.
+16\. Eshraghi B, Akbari MR, Fard MA, et al.The prevalence of amblyogenic factors in children with persistent congenitalnasolacrimal duct obstruction. Graefes Arch Clin Exp Ophthalmol.2014;252(11):1847-52.
 
-17\. Kipp MA, Kipp MA Jr, Struthers W.Anisometropia and amblyopia in nasolacrimal duct obstruction. J AAPOS.2013;17(3):2358.
+17\. Kipp MA, Kipp MA Jr, Struthers W.Anisometropia and amblyopia in nasolacrimal duct obstruction. J AAPOS.2013;17(3):235-8.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -561,17 +569,17 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 我妈，更是不甘落后、帮扶娘家的积极分子。三个弟弟的婚房都有她的贡献，姥姥家的吃穿用度和医药费，逢年过节的大包小包，把2个弟弟安排到我爹的厂子拿高薪……她和我爹像竞赛一般，生怕好东西被对方搬走，纷纷先下手为强。
 
-他们仨，喜大普奔，也都得到了扶弟魔的完美结局。大伯和小叔瓜分了奶奶的遗产，早就不搭理我爹和大姑了，而我的舅舅们要求我妈放弃继承娘家财产。
+他们仨，喜大普奔，也都得到了扶弟魔的完美结局。大伯和小叔瓜分了奶奶的遗产，早就不搭理我爹和大姑了，而我的舅舅们要求我妈放弃继承娘家财产。  
 你们猜，承载了他们仨基因、耳濡目染的我是什么样子？
 
 
-**扶弟魔的三次方是？六亲不认****![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4C4iaMlRZgX4q44cu6zjibf4cDuibdJwD6KKByiaDrSKIicfsStZGroZ5dynUB139gtUiadrOGUNIuQxxTw/640?wx_fmt=png "[笑而不语]")**
-我，不跟亲戚来往，膈应所有七大姑八大姨。和亲戚们不加威信，不留电话，就算通过父母找到我，也是充耳不闻。
+**扶弟魔的三次方是？六亲不认****![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4C4iaMlRZgX4q44cu6zjibf4cDuibdJwD6KKByiaDrSKIicfsStZGroZ5dynUB139gtUiadrOGUNIuQxxTw/640?wx_fmt=png "[笑而不语]")**  
+我，不跟亲戚来往，膈应所有七大姑八大姨。和亲戚们不加威信，不留电话，就算通过父母找到我，也是充耳不闻。  
 找我加号？我是眼科的啊，不认识内外妇儿的医生。找我看眼睛？啊呀，你们记错了，我是屁眼儿科的。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -602,13 +610,13 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 婚姻的本质就是生意，而且反人性。绝大部分的婚姻都在凑合，夫妻是利益共同体，捆绑在一起的原因有：抚养孩子，财产不够分，离婚丢脸，自身养老困难，再婚困难……
 
-穷人结婚为了生存，富人结婚为了利益，我不结婚是为了不祸害别人![](https://res.wx.qq.com/t/wx_fed/weemoji/res/v1.3.10/assets/newemoji/2_02.png)
+穷人结婚为了生存，富人结婚为了利益，我不结婚是为了不祸害别人![](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/2_02.png)
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4C4iaMlRZgX4q44cu6zjibf4crNDCoOmG7kQ8g4rciaJ8RumyeHy6zP1pCaWuyQKFkXp4FYyy2ghuCAw/640?wx_fmt=gif)
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -631,7 +639,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-
+  
 
 > **家长提问**
 >
@@ -660,7 +668,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 需要电脑或者视光师给孩子的眼睛验光，测量每只眼睛的照相机镜头度数。
 
-您提到的两次验光，很可能孩子的眼睛没有滴散瞳眼药水（睫状肌麻痹），因此不准确。我之前写过科普，您可以快速学习：[如何读懂孩子的验光结果？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650430734&idx=1&sn=930098bef3725500c84a4aef43fa7c75&chksm=87d58ef5b0a207e3933d92dc197197f728fc856fb75d3cd09d698d16ceb60a077c849c8dece4&scene=21#wechat_redirect)
+您提到的两次验光，很可能孩子的眼睛没有滴散瞳眼药水（睫状肌麻痹），因此不准确。我之前写过科普，您可以快速学习：[如何读懂孩子的验光结果？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650430734&idx=1&sn=930098bef3725500c84a4aef43fa7c75&chksm=87d58ef5b0a207e3933d92dc197197f728fc856fb75d3cd09d698d16ceb60a077c849c8dece4&scene=21#wechat_redirect)  
 
 注意：对于儿童眼睛来说，需要使用散瞳眼药水才能得到真实的S值，才能得知真实的远视度数或近视度数。
 
@@ -668,7 +676,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 眼轴是指眼球的前后长度（直径），用于评估眼球的大小。我们通过监测儿童眼轴的长度和发育速度，可以评估孩子是否携带近视基因、预测近视发病的年龄。
 
-看图的Comp. AL，可以得知孩子的右眼眼轴22.79毫米，左眼眼轴22.95毫米。这个眼轴长度对于4岁儿童来说，有些长了。**大陆地区4岁男孩的平均眼轴大约是22.322.5毫米**。说明孩子以后要近视，根据孩子的角膜曲率值（约41D），预测出现近视度数的年龄大约在7岁以后。
+看图的Comp. AL，可以得知孩子的右眼眼轴22.79毫米，左眼眼轴22.95毫米。这个眼轴长度对于4岁儿童来说，有些长了。**大陆地区4岁男孩的平均眼轴大约是22.3-22.5毫米**。说明孩子以后要近视，根据孩子的角膜曲率值（约41D），预测出现近视度数的年龄大约在7岁以后。
 
 您孩子需要每三个月测量眼轴，如果每季度的眼轴增幅超过0.1毫米，说明近视基因激活了。那时很可能还有远视度数。由于您孩子的角膜曲率较平（大部分人是43D），因此将来不可以用近视度数来评估近视的严重程度，而是要用眼轴的长度和发育速度来衡量。另外，父母也需要测量眼轴，看谁的眼轴突破26毫米。
 
@@ -686,9 +694,9 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 **1\. 孩子****坚持每天2小时阳光时间：**
 
-阳光可以刺激眼睛的视网膜分泌多巴胺。多巴胺可以使眼球的发育变慢一点儿。每天2小时阳光时间，可以让眼轴每年减少0.030.08毫米\[1,2\]。如果阳光刺眼，例如身处夏季正午、海边、沙滩的环境，说明紫外线辐射强烈，还是要戴太阳镜的。预防近视，不需要暴晒孩子。
+阳光可以刺激眼睛的视网膜分泌多巴胺。多巴胺可以使眼球的发育变慢一点儿。每天2小时阳光时间，可以让眼轴每年减少0.03-0.08毫米\[1,2\]。如果阳光刺眼，例如身处夏季正午、海边、沙滩的环境，说明紫外线辐射强烈，还是要戴太阳镜的。预防近视，不需要暴晒孩子。
 
-2\. 孩子需要**每三个月测量眼轴**：如果每年的增幅在0.20.3毫米，说明近视基因还没激活。
+2\. 孩子需要**每三个月测量眼轴**：如果每年的增幅在0.2-0.3毫米，说明近视基因还没激活。
 
 3\. 滴了散瞳眼药水之后，近视50度，马上戴角膜塑形镜，联合低浓度阿托品滴眼液治疗。
 
@@ -696,13 +704,13 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 参考文献：
 
-1\. Optom Vis Sci. 2019 Apr;96(4):276282. 
+1\. Optom Vis Sci. 2019 Apr;96(4):276-282. 
 
 2\. Int J Environ Res Public Health. 2019 Jul 21;16(14).
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -766,7 +774,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -799,7 +807,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 **1\. 促进肌肉生长：**
 
-每周23次做力量训练（各种器械、哑铃），喝蛋白粉和氨基酸粉。
+每周2-3次做力量训练（各种器械、哑铃），喝蛋白粉和氨基酸粉。
 
 **2\. 降低体脂率：**
 
@@ -807,7 +815,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 **3\. 控制腰围：**
 
-腰围比体重更重要！男性腰围要控制在84厘米以下，女性腰围控制在74厘米以下（Liver Int. 2015）。如果男性腰围≥94 cm，女性腰围≥80 cm，那么意味着走在糖尿病的路上了。
+腰围比体重更重要！男性腰围要控制在84厘米以下，女性腰围控制在74厘米以下（Liver Int. 2015）。如果男性腰围≥94 cm，女性腰围≥80 cm，那么意味着走在糖尿病的路上了。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -815,7 +823,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -867,7 +875,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 你以为猪爷爷怕泡啊，我怕泡吗？
 
-不放弃寻找优秀伴侣的机会，对后代质量负责。
+不放弃寻找优秀伴侣的机会，对后代质量负责。  
 
 **我们不怕泡，我们只是眼光高。**
 
@@ -875,7 +883,7 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -898,9 +906,9 @@ Meta分析研究发现褪黑素可以有效治疗一级睡眠障碍\[1\]。相�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
-黄斑是我们眼睛最娇贵的部分。黄斑正对着瞳孔的后方，是眼睛这个照相机底片一一视网膜的中央。视网膜是大脑的一部分，也会像大脑一样，随着年龄增长而衰老。黄斑的衰老就是年龄相关性黄斑变性 (简写AMD) ，排名第四的致盲眼病。在中国8589岁人群中AMD患病率高达18.98%\[1\]，可怕！
+黄斑是我们眼睛最娇贵的部分。黄斑正对着瞳孔的后方，是眼睛这个照相机底片一一视网膜的中央。视网膜是大脑的一部分，也会像大脑一样，随着年龄增长而衰老。黄斑的衰老就是年龄相关性黄斑变性 (简写AMD) ，排名第四的致盲眼病。在中国85-89岁人群中AMD患病率高达18.98%\[1\]，可怕！
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BMaZ5ticibxsx3VMI66F4HURG0sF3dGzU6z9g1ic1biadDuv3sJEPMV08kTRhQha8ib53dTcFABw7WOLA/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BMaZ5ticibxsx3VMI66F4HURG0sF3dGzU6z9g1ic1biadDuv3sJEPMV08kTRhQha8ib53dTcFABw7WOLA/640?wx_fmt=png)  
 
 AMD的原因是什么？
 
@@ -926,9 +934,9 @@ AMD的原因是什么？
 
 **1\. 调整饮食结构**
 
-**血脂异常的人群要注意！高密度脂蛋白胆固醇 (HDLC) 水平增高，亚洲人AMD风险增加** (OR=1.58) \[6\]。HDLC每增加1 mmol/L，AMD患病风险增加18% (RR=1.18) \[7\]。别的血脂指标高，暂时不需要担心AMD的问题。目前，尚未发现低密度脂蛋白胆固醇和甘油二酷的水平与AMD的患病风险有相关性。
+**血脂异常的人群要注意！高密度脂蛋白胆固醇 (HDL-C) 水平增高，亚洲人AMD风险增加** (OR=1.58) \[6\]。HDL-C每增加1 mmol/L，AMD患病风险增加18% (RR=1.18) \[7\]。别的血脂指标高，暂时不需要担心AMD的问题。目前，尚未发现低密度脂蛋白胆固醇和甘油二酷的水平与AMD的患病风险有相关性。
 
-**多吃鱼、少喝酒、少吃红肉！**循证医学研究发现\[8\]，蔬菜、水果、坚果、谷物、奶制品、黄油、人造奶油的摄入与AMD的患病风险没有相关性。只有吃鱼可以显著降低AMD风险\[89\]，尤其是三文鱼更有益\[9\]。吃红肉略增加早期AMD风险(RR=1.17)特别注意，对于饮酒人群来说，AMD的患病风险增加20% (RR=1.20) 。
+**多吃鱼、少喝酒、少吃红肉！**循证医学研究发现\[8\]，蔬菜、水果、坚果、谷物、奶制品、黄油、人造奶油的摄入与AMD的患病风险没有相关性。只有吃鱼可以显著降低AMD风险\[8-9\]，尤其是三文鱼更有益\[9\]。吃红肉略增加早期AMD风险(RR=1.17)特别注意，对于饮酒人群来说，AMD的患病风险增加20% (RR=1.20) 。
 
 **痛风患者的AMD风险增加**！****痛风人群，患有AMD的风险增高1.39倍 (HR=1.39)\[10\]。在痛风人群，AMD的发病率是20.1/1000，而非痛风人群，AMD的发病率只有11.7/1000。
 
@@ -936,37 +944,37 @@ AMD的原因是什么？
 
 规律的体育运动健康的生活方式可以延迟AMD的发病和进展。对于中老年人群来说，**规律的体育运动，可以降低AMD的患病风险**\[11\]。
 
-
+  
 
 参考文献：
 
-1.Song P, et al. The national and subnational prevalenceand burden of agerelatedmacular degeneration in China. J Glob Health. 2017Dec;7(2):020703.
+1.Song P, et al. The national and subnational prevalenceand burden of age-relatedmacular degeneration in China. J Glob Health. 2017Dec;7(2):020703.
 
-2\. Schick T, et al. HISTORY OF SUNLIGHT EXPOSURE IS A RISK FACTOR FOR AGE.RELATED MACULARDEGENERATION.Retina. 2016 Apr;36(4):78790.
+2\. Schick T, et al. HISTORY OF SUNLIGHT EXPOSURE IS A RISK FACTOR FOR AGE.RELATED MACULARDEGENERATION.Retina. 2016 Apr;36(4):787-90.
 
-3\. Zhou H, et al. Association between sunlight exposure andrisk of agerelated maculardegeneration: a metaanalysis. BMC Ophthalmol. 2018Dec 20:18(1):331.
+3\. Zhou H, et al. Association between sunlight exposure andrisk of age-related maculardegeneration: a meta-analysis. BMC Ophthalmol. 2018Dec 20:18(1):331.
 
-4\. Rong ss, et al. Comorbidity of dementia and agerelatedmacular degeneration calls forclinical awareness: a metaanalysis. Br JOphthalmol. 2019 Apr 18.
+4\. Rong ss, et al. Comorbidity of dementia and age-relatedmacular degeneration calls forclinical awareness: a meta-analysis. Br JOphthalmol. 2019 Apr 18.
 
-5\. Xin X, et al. AGERELATED MACULAR DEGENERATION AND THERISK OF ALLCAUSE AND CARDIOVASCULAR MORTALITY: A MetaAnalysis of CohortStudiesRetina.2018 Mar:38(3):497507.
+5\. Xin X, et al. AGE-RELATED MACULAR DEGENERATION AND THERISK OF ALLCAUSE AND CARDIOVASCULAR MORTALITY: A MetaAnalysis of CohortStudiesRetina.2018 Mar:38(3):497-507.
 
-69\. Fan Q, et al. HDLcholesterol levels and risk ofagerelated macular degeneration: amultiethnic genetic study using Mendelianrandomization. Int J Epidemiol. 2017 Dec1;46(6):18911902.
+69\. Fan Q, et al. HDL-cholesterol levels and risk ofage-related macular degeneration: amultiethnic genetic study using Mendelianrandomization. Int J Epidemiol. 2017 Dec1;46(6):1891-1902.
 
 7\. Wang Y, et al. The Association between the Lipids Levelsin Blood and Risk of Age.Related Macular Degeneration. Nutrients.2016 Oct22:8(10).
 
-8\. Dinu M, et al. Food groups and risk of agerelatedmacular degeneration: a systematicreview with metaanalysis. Eur J Nutr.2019Aug;58(5):21232143.
+8\. Dinu M, et al. Food groups and risk of age-relatedmacular degeneration: a systematicreview with meta-analysis. Eur J Nutr.2019Aug;58(5):2123-2143.
 
-9\. Zhu W, et al. Fish Consumption and AgeRelated MacularDegeneration Incidence: AMetaAnalvsis and Svstematic Review of ProspectiveCohort Studies. Nutrients. 2016 Nov22:8(11).
+9\. Zhu W, et al. Fish Consumption and Age-Related MacularDegeneration Incidence: AMeta-Analvsis and Svstematic Review of ProspectiveCohort Studies. Nutrients. 2016 Nov22:8(11).
 
-10\. Singh JA, Cleveland JD. Gout and the risk of agerelatedmacular degeneration in theelderly. PLos One. 2018 Jul 12;13(7):e0199562.
+10\. Singh JA, Cleveland JD. Gout and the risk of age-relatedmacular degeneration in theelderly. PLos One. 2018 Jul 12;13(7):e0199562.
 
-11\. McGuinness MB,et al. Physical Activity and AgerelatedMacular Degeneration:Systematic Literature Review and Metaanalysis, Am JOphthalmol. 2017 Aug:180:2938
+11\. McGuinness MB,et al. Physical Activity and Age-relatedMacular Degeneration:Systematic Literature Review and Meta-analysis, Am JOphthalmol. 2017 Aug:180:29-38
 
-
+  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1006,13 +1014,13 @@ AMD的原因是什么？
 
 **1\. 高度近视基因推动的眼轴疯涨：**
 
-**7岁女孩，不近视的眼轴大概在22.3922.71毫米。**您孩子的眼轴长度提示她携带高度近视基因，推测近视基因在4岁左右就激活了。如果有其它同胞，3岁就要开始测量眼轴。父母也需要测量眼轴，很可能有一方的眼轴突破27毫米。
+**7岁女孩，不近视的眼轴大概在22.39-22.71毫米。**您孩子的眼轴长度提示她携带高度近视基因，推测近视基因在4岁左右就激活了。如果有其它同胞，3岁就要开始测量眼轴。父母也需要测量眼轴，很可能有一方的眼轴突破27毫米。
 
-根据您提供的数据，孩子目前的眼轴发育速度是0.6毫米/年，而且这是被0.01%阿托品滴眼液压制之后的速度，很可能原来的眼轴发育速度是0.8毫米/年。而我们要求孩子的眼轴发育速度降至不近视的同龄儿童水平，也就是每年眼轴增幅保持在0.20.3毫米。
+根据您提供的数据，孩子目前的眼轴发育速度是0.6毫米/年，而且这是被0.01%阿托品滴眼液压制之后的速度，很可能原来的眼轴发育速度是0.8毫米/年。而我们要求孩子的眼轴发育速度降至不近视的同龄儿童水平，也就是每年眼轴增幅保持在0.2-0.3毫米。
 
 **2\. 单一的低浓度阿托品治疗，压制不住高度近视儿童的眼轴疯涨**
 
-根据目前的循证医学研究，低浓度阿托品滴眼液可以让眼轴每年减少增长0.250.35毫米\[1,2\]。因此您的孩子必须接受角膜塑形治疗，后者还可以让孩子的眼轴每年减少增长0.20.3毫米\[1,2\]。
+根据目前的循证医学研究，低浓度阿托品滴眼液可以让眼轴每年减少增长0.25-0.35毫米\[1,2\]。因此您的孩子必须接受角膜塑形治疗，后者还可以让孩子的眼轴每年减少增长0.2-0.3毫米\[1,2\]。
 
 02
 --
@@ -1052,7 +1060,7 @@ AMD的原因是什么？
 
 参考文献：
 
-1\. Ophthalmology. 2016 Apr;123(4):697708. 
+1\. Ophthalmology. 2016 Apr;123(4):697-708. 
 
 2\. Cochrane Database Syst Rev. 2020 Jan 13;1:CD004916.
 
@@ -1060,7 +1068,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1099,7 +1107,7 @@ AMD的原因是什么？
 
 也就是说，我在美国熬夜的越洋电话、求爷爷告奶奶的卑微、发的红包、欠的人情、打破不联系前男友的禁忌，这些付出都喂了狗。看不到我的努力，就认为我没帮忙。我就艹他们全家了，此生不联系。
 
-我奶奶家的亲戚，没一个好东西，都是贪婪愚蠢的货；姥姥家的亲戚，除了三舅一家，也没有好东西，也是贪婪、事多的货。
+我奶奶家的亲戚，没一个好东西，都是贪婪愚蠢的货；姥姥家的亲戚，除了三舅一家，也没有好东西，也是贪婪、事多的货。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -1113,7 +1121,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1140,7 +1148,7 @@ AMD的原因是什么？
 
 在农耕时代，大家抱团生存。那时，儿子的数量、宗族的强弱、亲戚们的多寡，决定了灾荒时期能否存活。
 
-因此，在20世纪，有很多不可思议的现象：外甥有事找娘舅做主；没有儿子的夫妻，财产会被侄子理直气壮地继承；儿媳需要仰仗婆婆来生存，受气小媳妇是常见的……
+因此，在20世纪，有很多不可思议的现象：外甥有事找娘舅做主；没有儿子的夫妻，财产会被侄子理直气壮地继承；儿媳需要仰仗婆婆来生存，受气小媳妇是常见的……  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -1158,7 +1166,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1187,7 +1195,7 @@ AMD的原因是什么？
 
 每年的新年和春节，炸伤烧伤的门诊量剧增，36%是手炸伤，19%眼睛炸伤，19%头面部耳朵炸伤。
 
-**强调几个注意事项**：
+**强调几个注意事项**：  
 
 1\. 近视人群放鞭炮要**戴树脂眼镜和护目镜**，像下图那样，碎片飞过来，有护目镜保护。
 
@@ -1203,9 +1211,9 @@ AMD的原因是什么？
 
 6\. 到正规销售点购买烟花爆竹。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -1235,7 +1243,7 @@ AMD的原因是什么？
 
 如果您是妻子和母亲
 
-经营婚姻和家庭是您的首要任务，不是牺牲你，正是为了你的人生没有定时炸弹。一个稳定的婚姻和中产家庭，可以创造3001000万的积蓄，而离婚就会破产。
+经营婚姻和家庭是您的首要任务，不是牺牲你，正是为了你的人生没有定时炸弹。一个稳定的婚姻和中产家庭，可以创造300-1000万的积蓄，而离婚就会破产。
 
 女人在男权社会的竞争力是受限的，除非您一个人的收入可以养全家，那么可以说服丈夫来管家、管孩子。监管孩子的成长，避免他们成为你晚年的噩梦。那些吸毒、赌徒、借高利贷的败家子，父母无一不在地狱煎熬。**婚姻和孩子，都是需要投入精力的。**
 
@@ -1261,7 +1269,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1304,11 +1312,11 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-放心给宝宝拍照吧！孩子的成长过程是不可逆的，错过了就是错过了，抓紧一切时间用相机记录下宝宝成长的珍贵时刻。
+放心给宝宝拍照吧！孩子的成长过程是不可逆的，错过了就是错过了，抓紧一切时间用相机记录下宝宝成长的珍贵时刻。  
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -1351,9 +1359,9 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4B5bPWWLVx95ByqrbicEGyL6dn3diaHE18zictENa605IcgRFAeGqREzTfoM5ibibBIHflF1lldl25Aic8g/640?wx_fmt=gif)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -1388,13 +1396,13 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4B5bPWWLVx95ByqrbicEGyL6Dib5iasWH2XS2CkicrWmffBAqP5PNvaxVr3G3zN8U8KaUJ1kkQd1Ued8w/640?wx_fmt=jpeg)
 
-
+  
 
 > **家长提问**
 >
 > 梁大夫好！4个月的宝宝可以看不太刺眼的黄色室内吸顶灯的光源嘛？谢谢，从出生一直不敢开吸顶灯，室内一直灯光昏暗，怕影响他视力发育。
 
-36月婴儿的视力发育有大幅度进步，可以看到彩色了，所以婴儿们突然变得对室内灯很好奇，总是盯着看。不需要阻拦，**室内照明的能量很低，无法对眼睛产生实质损伤**。吸顶灯通常用LED了，LED灯泡不会产生紫外线；就算是荧光素灯管，距离孩子眼睛很远，产生的微弱紫外线也不会对眼睛产生损伤。
+3-6月婴儿的视力发育有大幅度进步，可以看到彩色了，所以婴儿们突然变得对室内灯很好奇，总是盯着看。不需要阻拦，**室内照明的能量很低，无法对眼睛产生实质损伤**。吸顶灯通常用LED了，LED灯泡不会产生紫外线；就算是荧光素灯管，距离孩子眼睛很远，产生的微弱紫外线也不会对眼睛产生损伤。
 
 **对婴儿需要训练昼夜节律**，白天就是要室内光亮、采光好，晚上关灯、拉窗帘、创造黑暗环境。这样有助于建立睡眠周期，不会黑白颠倒。
 
@@ -1402,7 +1410,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1478,7 +1486,7 @@ AMD的原因是什么？
 
 互不拖累就很好了。我不喜欢的同胞，如果不联系我就更好了。因为人生苦短，我活得也很累，不想虚伪应付。
 
-同样，不跟同胞借钱，发红包除外。我甚至不跟我姐夫联系。
+同样，不跟同胞借钱，发红包除外。我甚至不跟我姐夫联系。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -1488,7 +1496,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1515,7 +1523,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4BMaZ5ticibxsx3VMI66F4HURG9TyPdvV9Yiapq5r42am3tdYaZyjl8cBYBibIO7FIywnUAyoMGgE15hQ/640?wx_fmt=jpeg)
 
-通常献血每次400毫升。每年12次。我有时候在想，输入我血液的患者一定很幸福。
+通常献血每次400毫升。每年1-2次。我有时候在想，输入我血液的患者一定很幸福。  
 
 01
 --
@@ -1536,7 +1544,7 @@ AMD的原因是什么？
 
 我活力十足
 
-有的老年权贵会输入年轻人血液来保持活力。我血液里的各种激素和神经递质水平高，可以让人保持警醒、理智、有干劲儿，对于患者来说，会有一种神秘的力量在提示他们：活下去，家人需要你。
+有的老年权贵会输入年轻人血液来保持活力。我血液里的各种激素和神经递质水平高，可以让人保持警醒、理智、有干劲儿，对于患者来说，会有一种神秘的力量在提示他们：活下去，家人需要你。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -1546,7 +1554,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1566,13 +1574,14 @@ AMD的原因是什么？
 原文地址：[不同人群，应该如何选择人工泪液？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650448212&idx=1&sn=536efe6dc2bd30bca4c653ac7aa23939&chksm=87d572afb0a2fbb9836912f77620ffbc7d6374126ac9bdbcfed52fec9302209b15465d5140d1&scene=27#wechat_redirect)
 
 
+
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
 干眼症需要人工泪液
 
 干眼症很常见，表现为眼睛干涩、眼磨、充血、视疲劳。我国40岁以上成年人21%有干眼症。无论是儿童、中青年还是老年人，都有患干眼症的可能。我们不需要忍耐干眼症，**随时使用人工泪液，提高生活质量**。
 
-非处方人工泪液一直是干眼症治疗的一线用药，安全有效（Cochrane Database Sys Rev.2016）。人工泪液是无害的，主要成分是水、高分子化合物、调整PH值的溶质、低浓度防腐剂。任何一种成分都不会造成慢性中毒，也不会使人成瘾。人工泪液就像角膜的护肤乳液，属于改善生活品质的日常用品，我们可以放心使用。如果您对防腐剂很介意，有很多无防腐配方的人工泪液可以供您选择。
+非处方人工泪液一直是干眼症治疗的一线用药，安全有效（Cochrane Database Sys Rev.2016）。人工泪液是无害的，主要成分是水、高分子化合物、调整PH值的溶质、低浓度防腐剂。任何一种成分都不会造成慢性中毒，也不会使人成瘾。人工泪液就像角膜的护肤乳液，属于改善生活品质的日常用品，我们可以放心使用。如果您对防腐剂很介意，有很多无防腐配方的人工泪液可以供您选择。  
 
 如何选择人工泪液
 
@@ -1596,7 +1605,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1627,12 +1636,12 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-根据2017年发布的循证医学研究（有分量的证据）\[1\]：**49.69%大陆男人有性功能障碍。**以下是大陆男人不同年龄的性功能障碍患病率：
-20岁+男人：20.86%；
-30岁+男人：25.30%；
-40岁+男人：40.48%；
-50岁+男人：60.12%；
-60岁+男人：79.10%;
+根据2017年发布的循证医学研究（有分量的证据）\[1\]：**49.69%大陆男人有性功能障碍。**以下是大陆男人不同年龄的性功能障碍患病率：  
+20岁+男人：20.86%；  
+30岁+男人：25.30%；  
+40岁+男人：40.48%；  
+50岁+男人：60.12%；  
+60岁+男人：79.10%;  
 70岁以上男人：93.72%
 
 而且，性功能障碍的男人，身体也不好，心血管疾病、冠心病、脑中风、全因死亡率的风险也高\[2\]。
@@ -1647,13 +1656,13 @@ AMD的原因是什么？
 
 参考文献：
 
-1\. J Sex Med. 2017 Mar;5(1):e19e30.
+1\. J Sex Med. 2017 Mar;5(1):e19-e30.
 
-2\. J Sex Med. 2019 Jul;16(7):10051017.
+2\. J Sex Med. 2019 Jul;16(7):1005-1017.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -1684,12 +1693,12 @@ AMD的原因是什么？
 
 有一天很晚了，我外甥还缠着我讲故事。他说先讲一个搞笑的，我讲了一个屎尿屁的，他咯咯咯乐半天。他又说讲一个恐怖的，我讲恐龙大战吸血鬼。他还是不肯睡，**要求我讲一个又搞笑又恐怖的**。那晚打牌输我姐好几千，一肚子火。
 
-我说：“那谁，你们年级主任何老师，是我高中同学，就是大鼻孔像河马，脖子上三圈肉的那个。”
-我外甥：“是啊，怎么了？”
+我说：“那谁，你们年级主任何老师，是我高中同学，就是大鼻孔像河马，脖子上三圈肉的那个。”  
+我外甥：“是啊，怎么了？”  
 我说：“其实你是我俩的亲儿子。我读博士，养不了你，就把你送给你妈了。正好你妈有心脏病，生孩子危险，就抱养你了。大家不是总说你长得像我、而且何老师也喜欢你吗？等你长大了，会像我俩这么胖，鼻孔开始变大，脖子上堆三层肉……”
 
-安静三秒钟，我外甥嗷的一声，光着屁屁跑去找他妈。
-第二天，我摁着嘴角，滚回自己家了。
+安静三秒钟，我外甥嗷的一声，光着屁屁跑去找他妈。  
+第二天，我摁着嘴角，滚回自己家了。  
 哼，不可理喻的娘俩
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4B8nNPkRYguEPTWgWiaic67EdBdhicib5gLYhUSoH7CbD96pzMfAgLnMT5VJ9Ficcux2RGfVBicu2icSuqDg/640?wx_fmt=png "[右哼哼]")一个打麻将骗我钱，一个听段子砸场子。
@@ -1698,7 +1707,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1721,7 +1730,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-
+  
 
 > **家长提问**
 >
@@ -1736,7 +1745,7 @@ AMD的原因是什么？
 
 评估近视的严重程度，不看近视度数，只看眼轴
 
-或许您觉得孩子的近视度数只有75度，不高，属于轻度近视。但是，孩子的近视进展刚刚开始。6岁就出现近视度数，或者8岁之前近视超过200度的儿童，极大概率是携带高度近视基因的。这些孩子的父母，大概率有一方的近视在600度以上，或者眼轴（眼球的前后长度）在26毫米以上。**建议孩子的父母都测量眼轴，如果有二胎，3岁就要开始测量眼轴**。接下来，如果自然发展、不进行控制的话，孩子在68岁平均每年近视增长150度，然后到了围青春期近视度数继续疯涨，推测成年近视可达700度左右，也就是有致盲风险的高度近视。
+或许您觉得孩子的近视度数只有75度，不高，属于轻度近视。但是，孩子的近视进展刚刚开始。6岁就出现近视度数，或者8岁之前近视超过200度的儿童，极大概率是携带高度近视基因的。这些孩子的父母，大概率有一方的近视在600度以上，或者眼轴（眼球的前后长度）在26毫米以上。**建议孩子的父母都测量眼轴，如果有二胎，3岁就要开始测量眼轴**。接下来，如果自然发展、不进行控制的话，孩子在6-8岁平均每年近视增长150度，然后到了围青春期近视度数继续疯涨，推测成年近视可达700度左右，也就是有致盲风险的高度近视。
 
 **近视的本质是什么？**
 
@@ -1759,7 +1768,7 @@ AMD的原因是什么？
 
 **什么是循证医学研究？**
 
-它是全球诸多随机、对照、双盲临床试验的统计学总结，不定期更新，科学客观，不受医生的个人意见影响。最近的循证医学研究表明\[1,2\]，最有效的控制手段是角膜塑形镜和低浓度阿托品治疗。家长少走弯路，瞄准这两个火力最大的武器！
+它是全球诸多随机、对照、双盲临床试验的统计学总结，不定期更新，科学客观，不受医生的个人意见影响。最近的循证医学研究表明\[1,2\]，最有效的控制手段是角膜塑形镜和低浓度阿托品治疗。家长少走弯路，瞄准这两个火力最大的武器！  
 
 **早戴角膜塑形镜！**
 
@@ -1767,7 +1776,7 @@ AMD的原因是什么？
 
 **您孩子近视控制的目标是什么？**
 
-由于孩子携带高度近视基因，因此眼轴发育速度格外快，每年增幅通常在0.61.6毫米。因此控制治疗难度也很大。只要您孩子每年的眼轴增幅控制在0.3毫米以内，成年眼轴不超过25.5毫米，就是极大的胜利了。因为25.5毫米是安全眼轴的上限，眼球再长，视网膜的黄斑区域就会变薄\[3\]，对晚年是不利的。
+由于孩子携带高度近视基因，因此眼轴发育速度格外快，每年增幅通常在0.6-1.6毫米。因此控制治疗难度也很大。只要您孩子每年的眼轴增幅控制在0.3毫米以内，成年眼轴不超过25.5毫米，就是极大的胜利了。因为25.5毫米是安全眼轴的上限，眼球再长，视网膜的黄斑区域就会变薄\[3\]，对晚年是不利的。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -1775,15 +1784,15 @@ AMD的原因是什么？
 
 参考文献：
 
-1\. Ophthalmology. 2016 Apr;123(4):697708. 
+1\. Ophthalmology. 2016 Apr;123(4):697-708. 
 
 2\. Cochrane Database Syst Rev. 2020 Jan 13;1:CD004916.
 
 3\. Biomed Res Int . 2019 Jul 16;2019:8913582.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -1808,23 +1817,23 @@ AMD的原因是什么？
 
 昼夜节律是哺乳动物身体的内在节律。人类的昼夜节律是以24小时为周期的(24+4小时)。负责昼夜节律的解剖结构是从眼睛开始，由眼睛感知外界的光线变化，把神经信号上传给视交叉上核，视交叉上核进一步调控松果体的分泌功能：**白天抑制松果体分泌祖黑素、黑暗刺激松果体分泌褪黑素。**
 
-光可以改变人类的昼夜节律，因为光可以抑制褪黑素的分泌，因而白天的褪黑素水平很低，而到了夜间，凌晨124点是根黑素分泌的高峰(图1)。如**果在夜间，眼睛暴露在光照明中，就会抑制正常的褪黑素分泌。**
+光可以改变人类的昼夜节律，因为光可以抑制褪黑素的分泌，因而白天的褪黑素水平很低，而到了夜间，凌晨12-4点是根黑素分泌的高峰(图1)。如**果在夜间，眼睛暴露在光照明中，就会抑制正常的褪黑素分泌。**
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4B8nNPkRYguEPTWgWiaic67EdpGuo6sqFyzjs3tv4zlntkENHtGaCjqNYIh2oiam96GaoMxqr6SibHHwA/640?wx_fmt=png)
 
 **不只是明亮的光才可以影响褪黑素分泌。**光的强度、波谱、暴露时间都可以影响褪黑素的分泌。
 
-我们眼睛视网膜有一种神经胶质细胞，不负责看东西，专门负责感知外界的光变化，**它们对波长范围450480纳米的蓝光特别敏感**。动物实验发现，即使是5lux的微弱夜间照明也会降低大鼠的学习和记忆行为，缩短了海马回的神经细胞树突长度\[1\]；也改变了大鼠的白天睡眠和视交叉上核的基因表达\[2\]。这些说明**虽然光线微弱，光谱中的蓝光成分仍然可以被大鼠的视网膜感知到，甚至影响了大脑的基因表达。**
+我们眼睛视网膜有一种神经胶质细胞，不负责看东西，专门负责感知外界的光变化，**它们对波长范围450-480纳米的蓝光特别敏感**。动物实验发现，即使是5lux的微弱夜间照明也会降低大鼠的学习和记忆行为，缩短了海马回的神经细胞树突长度\[1\]；也改变了大鼠的白天睡眠和视交叉上核的基因表达\[2\]。这些说明**虽然光线微弱，光谱中的蓝光成分仍然可以被大鼠的视网膜感知到，甚至影响了大脑的基因表达。**
 
 动物实验的结论不能直接应用于指导人类健康，我仍然反对给婴幼儿整夜打开小夜灯的护理办法，除非有人类的临床试验或者流行病学研究结果证实整夜开夜灯不会影响昼夜节律。
 
-1\. J Biol Rhythms. 2012 Aug;27(4):31927. Dim nighttime light impairs cognition and provokes depressivelike responses in a diurnal rodent.
+1\. J Biol Rhythms. 2012 Aug;27(4):319-27. Dim nighttime light impairs cognition and provokes depressive-like responses in a diurnal rodent.
 
-2\. Sci Rep. 2016 Oct 20;6:35662. Dim light at night disturbs the daily sleepwake cycle in the rat.
+2\. Sci Rep. 2016 Oct 20;6:35662. Dim light at night disturbs the daily sleep-wake cycle in the rat.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1854,7 +1863,7 @@ AMD的原因是什么？
 
 男朋友是锦上添花，我会喜欢很多花
 
-**我不相信会喜欢一个人到死，至少我不行****。**小学时，我喜欢武侠浪子；中学时，我喜欢王子皇子；大学时，我喜欢高智商霸道总裁；研究生时，我开始喜欢科学家；现在我喜欢有副教授头衔以上的科学家，我觉得清华工科男最性感![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4B8nNPkRYguEPTWgWiaic67EdzolCTNZQ2loXwAj3zD5DgCKc9H6sJt5Dd99vfLCGludqFBLGIb82AQ/640?wx_fmt=png "[笑而不语]")
+**我不相信会喜欢一个人到死，至少我不行****。**小学时，我喜欢武侠浪子；中学时，我喜欢王子皇子；大学时，我喜欢高智商霸道总裁；研究生时，我开始喜欢科学家；现在我喜欢有副教授头衔以上的科学家，我觉得清华工科男最性感![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4B8nNPkRYguEPTWgWiaic67EdzolCTNZQ2loXwAj3zD5DgCKc9H6sJt5Dd99vfLCGludqFBLGIb82AQ/640?wx_fmt=png "[笑而不语]")  
 
 
 02
@@ -1862,7 +1871,7 @@ AMD的原因是什么？
 
 我不适合做全职太太，只能拼事业养自己
 
-我身边有很多女同胞嫁得好，持家有道、夫妇恩爱、儿女双全。我很羡慕，但我也清楚我自己没这气量。我无法包容、忍耐男人，因为我是男性化大脑。
+我身边有很多女同胞嫁得好，持家有道、夫妇恩爱、儿女双全。我很羡慕，但我也清楚我自己没这气量。我无法包容、忍耐男人，因为我是男性化大脑。  
 **我愿意做打工狗，不意味着我比全职太太能干，各有所长。**
 
 03
@@ -1878,7 +1887,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1903,9 +1912,9 @@ AMD的原因是什么？
 
 经常有读者朋友问：眼皮跳是什么征兆吗？
 
-眼皮跳的医学名词叫**眼睑痉挛**，通常持续几秒钟，甚至几天。通常在熬夜、疲劳、压力大、强光晃眼、眼前鼓掌等之后出现，不会影响视力。
+眼皮跳的医学名词叫**眼睑痉挛**，通常持续几秒钟，甚至几天。通常在熬夜、疲劳、压力大、强光晃眼、眼前鼓掌等之后出现，不会影响视力。  
 
-我认为眼皮跳只是说明大脑负责眨眼的区域，那里**神经细胞之间的交流有bug****了**，比如乱放电什么的。大脑运行几十年，偶尔出现长时间缓冲或bug很正常。
+我认为眼皮跳只是说明大脑负责眨眼的区域，那里**神经细胞之间的交流有bug****了**，比如乱放电什么的。大脑运行几十年，偶尔出现长时间缓冲或bug很正常。  
 
 但是左眼跳财、右眼跳灾这种说法很狡猾，因为在这种心理暗示下有很高的命中率。特别是右眼跳灾，说不定真的会出错。因为有个现象叫**墨菲定律：对于可能出错的事情，最终一定会出错，而且带来巨大的破坏性后果。**
 
@@ -1917,7 +1926,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -1940,7 +1949,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
-春节陪父母去了昆明和西双版纳。一肚子气回来了。再也不想去云南养老了。
+春节陪父母去了昆明和西双版纳。一肚子气回来了。再也不想去云南养老了。  
 总的来说，云南的风景好、气候好，人文落后，职业培训差，不能提供高质量的旅游服务。当地人比旅客还爱玩呢。
 
 01
@@ -1996,7 +2005,7 @@ AMD的原因是什么？
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2033,7 +2042,7 @@ AMD的原因是什么？
 
 目前，最常用的阿托品滴眼液有0.01%、0.02%、0.05%、0.1%，这4种都属于低浓度阿托品。
 
-我个人建议，**有高度近视倾向的近视儿童，特别是父母高度近视，首选0.05%阿托品滴眼液**\[1\]。尤其在79岁的眼轴发育高峰期，0.05%阿托品滴眼液对眼轴控制非常有力。**2\. 眼轴控制目标**
+我个人建议，**有高度近视倾向的近视儿童，特别是父母高度近视，首选0.05%阿托品滴眼液**\[1\]。尤其在7-9岁的眼轴发育高峰期，0.05%阿托品滴眼液对眼轴控制非常有力。**2\. 眼轴控制目标**
 
 韩国研究发现，眼轴超过25.5毫米，视网膜的黄斑开始变薄\[2\]。日本研究发现，眼轴超过25毫米，有正常眼压性青光眼和开角型青光眼的患病危险\[3\]。
 
@@ -2043,19 +2052,19 @@ AMD的原因是什么？
 
 OK镜治疗可以持续到18岁，好处是白天不戴框架眼镜、生活质量高。因为高中的学习强度高，戴框架眼镜容易带来视疲劳。
 
-18岁之后，可以考虑做近视矫正手术，上大学不戴框架眼镜，颜值高。而且，眼轴在安全范围内，眼睛没有定时炸弹，中晚年不担心高度近视带来的视网膜脱离、开角型青光眼、黄斑出血等并发症。
+18岁之后，可以考虑做近视矫正手术，上大学不戴框架眼镜，颜值高。而且，眼轴在安全范围内，眼睛没有定时炸弹，中晚年不担心高度近视带来的视网膜脱离、开角型青光眼、黄斑出血等并发症。  
 
 参考文献
 
-1.Ophthalmology. 2022 Mar;129(3):322333.
+1.Ophthalmology. 2022 Mar;129(3):322-333.
 
 2\. Biomed Res Int. 2019 Jul 16;2019:8913582.
 
-3\. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):7817.
+3\. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):781-7.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -2082,9 +2091,9 @@ OK镜治疗可以持续到18岁，好处是白天不戴框架眼镜、生活质�
 
 从昆明到西双版纳的高铁上，三个半小时路程，见识了一位孩子妈妈管理儿子的武功。
 
-是个67岁的男孩，大家懂的，鸡狗嫌。孩子妈又不给他看iPad，于是车厢的空气塞满了男孩的声音。我十个男朋友加起来都没有这孩子话多。
+是个6-7岁的男孩，大家懂的，鸡狗嫌。孩子妈又不给他看iPad，于是车厢的空气塞满了男孩的声音。我十个男朋友加起来都没有这孩子话多。
 
-终于把他妈惹毛了，孩子妈叫大名，咬着后槽牙：XXX，听清楚，**大年初一不动手，今天初二可以打孩子**。
+终于把他妈惹毛了，孩子妈叫大名，咬着后槽牙：XXX，听清楚，**大年初一不动手，今天初二可以打孩子**。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -2098,7 +2107,7 @@ OK镜治疗可以持续到18岁，好处是白天不戴框架眼镜、生活质�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2152,7 +2161,7 @@ OK镜治疗可以持续到18岁，好处是白天不戴框架眼镜、生活质�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2191,13 +2200,13 @@ OK镜治疗可以持续到18岁，好处是白天不戴框架眼镜、生活质�
 
 可能会引起皮肤二度烧伤。这种烧伤多发生在皮肤皱褶，例如肥胖人群、被镇静的儿童等，跟躺的体位有关系。影像科医生有经验来避免它的，别担心。
 
-![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4DeTpW0ic5iaJ204nxfZ1ccVyZBPlg9FHORzGyouou1KvibDrbT68RaLfEKAX6bgMA2rib9a6QCicPTrSg/640?wx_fmt=gif)
+![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4DeTpW0ic5iaJ204nxfZ1ccVyZBPlg9FHORzGyouou1KvibDrbT68RaLfEKAX6bgMA2rib9a6QCicPTrSg/640?wx_fmt=gif)  
 
   **核磁扫描的恋人接吻动图**
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2225,7 +2234,7 @@ AA制让恋爱更纯粹
 
 吃喝玩乐AA
 
-对方付一次账单，我付一次账单。不像美国情侣当面AA，两个人头碰头、数钢镚儿，我还是爱面子的![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4AMr59eOnvL3MvlL7jKFblyxElENRnTjic49hwwbHgwky0T1cX3CTxOV0frfWicoMVVEBNfYsP6mAZw/640?wx_fmt=png "[笑而不语]")
+对方付一次账单，我付一次账单。不像美国情侣当面AA，两个人头碰头、数钢镚儿，我还是爱面子的![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4AMr59eOnvL3MvlL7jKFblyxElENRnTjic49hwwbHgwky0T1cX3CTxOV0frfWicoMVVEBNfYsP6mAZw/640?wx_fmt=png "[笑而不语]")  
 如果是我邀请对方啪啪，可以来我家，但是不能过夜，或者我订星级酒店，可以过夜。总之，有生理需求的付账单，另一个人出肉身。
 
 02
@@ -2254,7 +2263,7 @@ AA制让恋爱更纯粹
 
 精神独立
 
-不在意白头到老，只在意啪啪高潮和深层精神交流。开心就在一起，尴尬了就分开。交往期间，我很乐意保持肉体专一，但精神独立。
+不在意白头到老，只在意啪啪高潮和深层精神交流。开心就在一起，尴尬了就分开。交往期间，我很乐意保持肉体专一，但精神独立。  
 不在意大众虚荣，我最爱自己，爱自己的事业，爱自己的人生。伴侣可以围着我转，喜欢就转，不喜欢就再见。自由最重要。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
@@ -2264,7 +2273,7 @@ AA制让恋爱更纯粹
 
 原文地址：[麦粒肿和霰粒肿，该如何区分？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650448613&idx=1&sn=e73218203bef133ea196df29958e24c3&chksm=87d5711eb0a2f80830cb90a59f46c21f8147807ccb8be846284b7b6d9ae19e8f699daa555c26&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
@@ -2274,7 +2283,7 @@ AA制让恋爱更纯粹
 
 针眼、麦粒肿、睑腺炎=细菌感染
 
-**麦粒肿是青少年的眼科“青春痘**”，先是眼睑红肿热痛，出现小脓头（图），可以长在外面，也可以长在里面。然后破溃流出脓或者油脂，经过710天会痊愈。
+**麦粒肿是青少年的眼科“青春痘**”，先是眼睑红肿热痛，出现小脓头（图），可以长在外面，也可以长在里面。然后破溃流出脓或者油脂，经过7-10天会痊愈。
 
 原因是睫毛根部的汗腺或皮脂腺被皮脂、皮屑堵塞，金黄色葡萄球菌在内部繁殖。不会影响视力，可以在家自我治疗，每天清洁睫毛根部（使用无泪配方的婴儿沐浴液或专门的眼睑清洁泡沫），**热敷眼睛，不挤不挑**。口服对乙酰氨基酚可以止痛，使用抗生素滴眼液会加速痊愈。
 
@@ -2310,19 +2319,19 @@ AA制让恋爱更纯粹
 
 理论上，**超过一个月不吸收的霰粒肿建议手术**。尤其是中老年人，不建议等待自我吸收。手术后，切除的组织会进行病理学检查和诊断，排除睑板腺癌、睑板腺的睑板内角化囊肿、眼睑的转移癌。没错，曾经有眼睑肾细胞癌转移的报道，手术后才发现并不是单纯的霰粒肿。
 
-虽然有青少年和青年人的小霰粒肿在35年后自发消退的报道\[1\]。但是，上眼睑大于5毫米的霰粒肿会压迫角膜引起散光\[2\]，更大的甚至还会引起角膜中央变平，导致获得性远视\[3\]。当然，这些屈光改变都会在霰粒肿消退或切除后恢复如前。有研究认为以下患者直接考虑手术\[4\]：≥35岁，病变时间≥8.5月，霰粒肿大小≥11.4毫米。
+虽然有青少年和青年人的小霰粒肿在3-5年后自发消退的报道\[1\]。但是，上眼睑大于5毫米的霰粒肿会压迫角膜引起散光\[2\]，更大的甚至还会引起角膜中央变平，导致获得性远视\[3\]。当然，这些屈光改变都会在霰粒肿消退或切除后恢复如前。有研究认为以下患者直接考虑手术\[4\]：≥35岁，病变时间≥8.5月，霰粒肿大小≥11.4毫米。
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4CUl2TEjBVX7K6tdbTX4B0nhYFgMTibXFECHAWVSInDZ4ias24iaVCG5UicgadZSvX2HwUWibib8aJic0unQ/640?wx_fmt=jpeg)
 
 手术切除还是激素注射呢？
 
-对于原发和复发的霰粒肿，**在病灶内注射曲安奈德** (40mg/ml)是有效的治疗方法\[5,6\]。在12次注射后，80%患者的霰粒肿在2.5周内得到消退。合并睑缘炎的患者，需要多次注射，而23次注射无效的霰粒肿，则需要手术切除。注射的并发症很罕见，不影响眼压和视力，不存在皮下脂肪萎缩和皮肤色素改变等并发症。而且对于成人和儿童同样有效\[6\]。
+对于原发和复发的霰粒肿，**在病灶内注射曲安奈德** (40mg/ml)是有效的治疗方法\[5,6\]。在1-2次注射后，80%患者的霰粒肿在2.5周内得到消退。合并睑缘炎的患者，需要多次注射，而2-3次注射无效的霰粒肿，则需要手术切除。注射的并发症很罕见，不影响眼压和视力，不存在皮下脂肪萎缩和皮肤色素改变等并发症。而且对于成人和儿童同样有效\[6\]。
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4CUl2TEjBVX7K6tdbTX4B0nmAjmcG2eDFmyzfpTyibEP6JnABclCQFS0Y9QmquM4pYtibnxRp3ATbMQ/640?wx_fmt=jpeg)
 
 长了就切 切不停？找病因！
 
-有一项以色列人群的流行病学调查，他们发现霰粒肿的高危因素有\[7\]：1**029岁女性 ，60 岁以上男性，睑缘炎，酒糟鼻，胃炎，焦虑，肠易激综合症和吸烟**。而在糖尿病和甲状腺功能低下人群中，霰粒肿则不流行。
+有一项以色列人群的流行病学调查，他们发现霰粒肿的高危因素有\[7\]：1**0-29岁女性 ，60 岁以上男性，睑缘炎，酒糟鼻，胃炎，焦虑，肠易激综合症和吸烟**。而在糖尿病和甲状腺功能低下人群中，霰粒肿则不流行。
 
 目前，有研究\[8\]认为**眼螨虫病是成人和儿童霰粒肿的危险因素**，而且容易导致复发，特别是皮脂蠕形螨。人体的螨虫有皮脂蠕形螨和毛囊蠕形螨，寄居在皮脂分泌旺盛的面部T形区。眼部则寄居于睫毛毛囊、皮脂腺和睑板腺。眼螨虫病严重时，睫毛镜检居然发现一根睫毛寄居6只毛囊蠕形螨。
 
@@ -2330,25 +2339,25 @@ AA制让恋爱更纯粹
 
 参考文献：
 
-1.Honda M, Honda K. Spontaneous resolution of chalazion after 3 to 5 years. Eye Contact Lens. 2010;36(4):2302.
+1.Honda M, Honda K. Spontaneous resolution of chalazion after 3 to 5 years. Eye Contact Lens. 2010;36(4):230-2.
 
-2.Park YM, Lee JS. The effects of chalazion excision on corneal surface aberrations. Cont Lens Anterior Eye. 2014;37(5):3425.
+2.Park YM, Lee JS. The effects of chalazion excision on corneal surface aberrations. Cont Lens Anterior Eye. 2014;37(5):342-5.
 
-3.Santa Cruz CS, Culotta T, Cohen EJ, Rapuano CJ. Chalazioninduced hyperopia as a cause of decreased vision. Ophthalmic Surg Lasers. 1997;28(8):6834.
+3.Santa Cruz CS, Culotta T, Cohen EJ, Rapuano CJ. Chalazion-induced hyperopia as a cause of decreased vision. Ophthalmic Surg Lasers. 1997;28(8):683-4.
 
-4.Dhaliwal U, Bhatia A. A rationale for therapeutic decisionmaking in chalazia. Orbit. 2005;24(4):22730.
+4.Dhaliwal U, Bhatia A. A rationale for therapeutic decision-making in chalazia. Orbit. 2005;24(4):227-30.
 
-5.Ben Simon GJ, Huang L, Nakra T, Schwarcz RM, McCann JD, Goldberg RA. Intralesional triamcinolone acetonide injection for primary and recurrent chalazia: is it really effective? Ophthalmology. 2005;112(5):9137.
+5.Ben Simon GJ, Huang L, Nakra T, Schwarcz RM, McCann JD, Goldberg RA. Intralesional triamcinolone acetonide injection for primary and recurrent chalazia: is it really effective? Ophthalmology. 2005;112(5):913-7.
 
 6.Lee JW, Yau GS, Wong MY, Yuen CY. A comparison of intralesional triamcinolone acetonide injection for primary chalazion in children and adults. ScientificWorldJournal. 2014;2014:413729.
 
-7.Nemet AY, Vinker S, Kaiserman I. Associated morbidity of chalazia. Cornea. 2011;30(12):137681.
+7.Nemet AY, Vinker S, Kaiserman I. Associated morbidity of chalazia. Cornea. 2011;30(12):1376-81.
 
-8.Liang L, Ding X, Tseng SC. High prevalence of demodex brevis infestation in chalazia. Am J Ophthalmol. 2014;157(2):342348.e1.
+8.Liang L, Ding X, Tseng SC. High prevalence of demodex brevis infestation in chalazia. Am J Ophthalmol. 2014;157(2):342-348.e1.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2381,7 +2390,7 @@ AA制让恋爱更纯粹
 
 大伯是我曾祖母亲自带大的，爱在心尖上。经常被双胞胎打，老太太咽不下这口气。而我曾外祖母的双胞胎经常被我大姑打得鼻血横流，也咽不下这口气。于是这俩老太太针尖对麦芒，日积月累地战事升级。从胡同口对骂，到互殴揪头发……最后一场大战是俩老太太互赠大逼兜、滚地上互踹、吐口水，双胞胎和我大姑大伯也在鬼哭狼嚎地混战，场面甚为壮观，成为街坊美谈。
 
-还没完呢。这一仗打完之后，我爷爷出手了。当时我爷爷已经是国企领导了，而曾外祖母的子孙都脑子笨、不会读书，都是普通工人。我爷爷抓住曾外祖母骂街时的口误，批斗她。于是，曾外祖母站在批斗大会的高台上，低头90度鞠躬，深刻自我批评了一小时。
+还没完呢。这一仗打完之后，我爷爷出手了。当时我爷爷已经是国企领导了，而曾外祖母的子孙都脑子笨、不会读书，都是普通工人。我爷爷抓住曾外祖母骂街时的口误，批斗她。于是，曾外祖母站在批斗大会的高台上，低头90度鞠躬，深刻自我批评了一小时。  
 这仇结大了，两家10年不来往。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
@@ -2396,7 +2405,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2419,7 +2428,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-循证医学研究\[13\]证实，每天户外活动可以推迟或预防儿童近视的早发。预防近视的关键是每天2小时阳光\[1\]。阳光刺激视网膜分泌多巴胺，多巴胺可以减缓近视进展\[4\]。
+循证医学研究\[1-3\]证实，每天户外活动可以推迟或预防儿童近视的早发。预防近视的关键是每天2小时阳光\[1\]。阳光刺激视网膜分泌多巴胺，多巴胺可以减缓近视进展\[4\]。
 
 我们测量眼球的直径——眼轴，评估它的发育速度，可以推测近视基因是否激活（每年增幅>0.4毫米）。
 
@@ -2435,25 +2444,25 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4AMr59eOnvL3MvlL7jKFblyjHnp0IxA3NxFmvmdKpkbChACFKt95PKGHicibocaEBLrJv0CRibBCl3PQ/640?wx_fmt=png)
 
-
+  
 
 01
 --
 
-高峰期79岁
+高峰期7-9岁
 
-在19年7月21年8月，每年的眼轴增幅都不超过0.3毫米，眼球发育缓慢。在进入7岁之后（22年2月23年2月），眼轴发育突然加速，每年增幅超过0.4毫米。
+在19年7月-21年8月，每年的眼轴增幅都不超过0.3毫米，眼球发育缓慢。在进入7岁之后（22年2月-23年2月），眼轴发育突然加速，每年增幅超过0.4毫米。  
 
 02
 --
 
 秋冬季发育加速
 
-21年8月22年2月、22年9月23年2月都出现眼轴大幅增涨，即使家住海南、冬季阳光充足。有的儿童则是冬季和春季发育加速。理论上来说，近视基因没有激活的儿童，在28月的眼轴发育速度是缓慢的。而如果在28月的眼轴发育速度>0.1毫米/季度，说明近视基因激活。
+21年8月-22年2月、22年9月-23年2月都出现眼轴大幅增涨，即使家住海南、冬季阳光充足。有的儿童则是冬季和春季发育加速。理论上来说，近视基因没有激活的儿童，在2-8月的眼轴发育速度是缓慢的。而如果在2-8月的眼轴发育速度>0.1毫米/季度，说明近视基因激活。
 
 总结
 
-对于大部分中国儿童来说，79岁进入眼轴发育高峰期。因此到了10岁时，一半中国儿童会出现近视度数。如果在7岁之前出现眼轴发育加速，则提示有高度近视倾向、父母眼轴>26毫米（诊断高度近视）。
+对于大部分中国儿童来说，7-9岁进入眼轴发育高峰期。因此到了10岁时，一半中国儿童会出现近视度数。如果在7岁之前出现眼轴发育加速，则提示有高度近视倾向、父母眼轴>26毫米（诊断高度近视）。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4AMr59eOnvL3MvlL7jKFblyiaHe4cuwtcxswaC0zxBIwibHe8u3q3G3wdkuIKYg3Idjwj2D0GngheEg/640?wx_fmt=png)
 
@@ -2464,15 +2473,15 @@ AA制让恋爱更纯粹
 
 1\. Int J Environ Res Public Health. 2019 Jul 21;16(14):2595.
 
-2\. Ophthalmic Res. 2020;63(2):97105.
+2\. Ophthalmic Res. 2020;63(2):97-105.
 
-3\. Acta Ophthalmol. 2017 Sep;95(6):551566.
+3\. Acta Ophthalmol. 2017 Sep;95(6):551-566.
 
-4\. Prog Retin Eye Res. 2017 Nov;61:6071.
+4\. Prog Retin Eye Res. 2017 Nov;61:60-71.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -2537,7 +2546,7 @@ AA制让恋爱更纯粹
 
    ·视盘OCT(德国蔡司仪器)
 
-   ·视野检查:242
+   ·视野检查:24-2
 
    ·测量眼压，必要时做24小时眼压曲线
 
@@ -2545,7 +2554,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2564,7 +2573,7 @@ AA制让恋爱更纯粹
 
 原文地址：[投胎指南](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650448668&idx=2&sn=6f8b72cce7aabb5a9e75a35e5b14100e&chksm=87d570e7b0a2f9f17129d78f198433e484cf455d6517b030ee3d011ad0bfa78d1a13e4644faf&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -2584,7 +2593,7 @@ AA制让恋爱更纯粹
 
 笨父母挣不到钱，脾气就会不好，拿孩子撒气。自己脑子笨，不会读书，就会要求孩子好好读书，还会认为孩子考不上清华的原因是不用功。
 
-因为脑子笨，经常被骗钱，捅几个财务大窟窿让子女填坑。
+因为脑子笨，经常被骗钱，捅几个财务大窟窿让子女填坑。  
 
 
 03
@@ -2600,7 +2609,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2629,7 +2638,7 @@ AA制让恋爱更纯粹
 
 现在，我对他们的赡养完全出于法律责任，更像回报股东，给钱痛快、但没有爱。
 
-亲子关系破裂，像我们这种，比老死不往来还尴尬。刻意减少见面，见面客气、不说真话。虽然感激他们养育过我，但不原谅他们给我的伤害。
+亲子关系破裂，像我们这种，比老死不往来还尴尬。刻意减少见面，见面客气、不说真话。虽然感激他们养育过我，但不原谅他们给我的伤害。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -2667,7 +2676,7 @@ AA制让恋爱更纯粹
 
 他们都担任高中班主任，很忙。我还在幼儿园时期就被锁在家里，一个人看着电视孤独入睡。上学之后，通常是我在书房写作业，他们在客厅看电视。不过问我哪些知识点不会，**只看考试分数，认为考砸了就是不努力**。
 
-在十几年中，我们三个人的家庭旅行可能连5次也不到。幼年是因为他们忙，也不想花钱；到了我青春期，是我讨厌他们，不想跟他们旅行。
+在十几年中，我们三个人的家庭旅行可能连5次也不到。幼年是因为他们忙，也不想花钱；到了我青春期，是我讨厌他们，不想跟他们旅行。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -2681,7 +2690,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2714,7 +2723,7 @@ AA制让恋爱更纯粹
 
 您孩子并不孤单，那么有多少亚裔孩子有呢?
 
-4.9%男孩和4.1%女孩在一岁时就出现了。**6岁时比例最多**，44.6%男孩和46.6%女孩都有。而到了18岁就少了，只有27.6%男孩和27.1%女孩有。78%孩子双眼都有。内上象限的眼白最常见，而外下象限的眼白最少见。
+4.9%男孩和4.1%女孩在一岁时就出现了。**6岁时比例最多**，44.6%男孩和46.6%女孩都有。而到了18岁就少了，只有27.6%男孩和27.1%女孩有。78%孩子双眼都有。内上象限的眼白最常见，而外下象限的眼白最少见。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -2724,11 +2733,11 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4Cj5mroTVmcRMiaQ2ukJKpEf69Ze1vib3StH7icJfibOXGvktRR5kbOib6oiaooEGqcy71MGVm6p787KnwA/640?wx_fmt=jpeg)
 
-（图片来自OnlineJournal of Ophthalmology）
+（图片来自OnlineJournal of Ophthalmology）  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2765,7 +2774,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2804,7 +2813,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2849,7 +2858,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2904,7 +2913,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2933,7 +2942,7 @@ AA制让恋爱更纯粹
 
 我是80后，计划生育最严格的时代，而我是二胎女儿。我还有一个姐姐呢。在我出生那天，重男轻女的我爹崩溃了，在医院仰脖儿大哭：对不起他爹，对不起老梁家的列祖列宗。
 
-因为是女儿，没有出生证，也不给上户口，断奶就火速送给大姑扶养，为的是给后面出生的男孩腾地儿。在中国大陆做了17年的黑户，在高考前一年才有自己的户口纸和身份证。而且，还是登记在大姑父名下。
+因为是女儿，没有出生证，也不给上户口，断奶就火速送给大姑扶养，为的是给后面出生的男孩腾地儿。在中国大陆做了17年的黑户，在高考前一年才有自己的户口纸和身份证。而且，还是登记在大姑父名下。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -2951,7 +2960,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -2980,9 +2989,9 @@ AA制让恋爱更纯粹
 
 我国常用的处方散瞳药有两种:**阿托品滴眼液/眼膏、美多丽滴眼液**。国外的散瞳药还有0.5%环戊通滴眼液。
 
-阿托品的睫状肌麻痹效果最好，持续时间长，平均12周。常用于儿童验光。在验光前3天开始用药。0.5%阿托品滴眼液，早晚各1滴，或者在结膜囊涂抹1厘米长的阿托品眼膏，每天一次。
+阿托品的睫状肌麻痹效果最好，持续时间长，平均1-2周。常用于儿童验光。在验光前3天开始用药。0.5%阿托品滴眼液，早晚各1滴，或者在结膜囊涂抹1厘米长的阿托品眼膏，每天一次。
 
-美多丽滴眼液含有0.5%托吡卡胺和0.5%盐酸去氧肾上腺素。托吡卡胺产生不完全的睫状肌麻痹持续时间是26小时。
+美多丽滴眼液含有0.5%托吡卡胺和0.5%盐酸去氧肾上腺素。托吡卡胺产生不完全的睫状肌麻痹持续时间是2-6小时。
 
 这篇文章将介绍散瞳药的副作用，**特别是婴儿和早产儿的中毒反应**；教给家长如何把散瞳药的副作用降到最低。
 
@@ -2999,7 +3008,7 @@ AA制让恋爱更纯粹
 
 发热和面部潮红
 
-低浓度的阿托品滴眼液(0.50.01%)会**引起婴儿发热**\[1\]。
+低浓度的阿托品滴眼液(0.5-0.01%)会**引起婴儿发热**\[1\]。
 
 阿托品为什么引起发热呢？
 
@@ -3079,37 +3088,37 @@ AA制让恋爱更纯粹
 
 不过低浓度的阿托品滴眼液可以用来抑制儿童近视的进展。
 
-
+  
 
 参考文献：
 
-1.Cooper J, et al. Maximum tropine dose without clinical signs or symptoms.Optom Vis Sci. 2013 Dec:90(12):146772.
+1.Cooper J, et al. Maximum tropine dose without clinical signs or symptoms.Optom Vis Sci. 2013 Dec:90(12):1467-72.
 
-2.Walti H, et al. Cardiovascular and digestive effects of 2 mydriatics in the lowbirthweight newborn infant. Arch Fr Pediatr1987 Jan44(1):313.
+2.Walti H, et al. Cardiovascular and digestive effects of 2 mydriatics in the low-birth-weight newborn infant. Arch Fr Pediatr1987 Jan44(1):31-3.
 
-3.Degirmencioglu Het al. Transient ileus associated with the use of mydriatics after screening for retinopathy of prematurity in a very low bith weight infant. J Pediatr Ophthalmol Strabismus. 2014 Jul 8;51 Online:e447.
+3.Degirmencioglu Het al. Transient ileus associated with the use of mydriatics after screening for retinopathy of prematurity in a very low bith weight infant. J Pediatr Ophthalmol Strabismus. 2014 Jul 8;51 Online:e44-7.
 
-4.Sarici SU, et al. Acute gastric dilatation complicating the use of mydriatics in a preterm newborn. Pediatr Radiol2001 Aug;31(8):5813.
+4.Sarici SU, et al. Acute gastric dilatation complicating the use of mydriatics in a preterm newborn. Pediatr Radiol2001 Aug;31(8):581-3.
 
-5.BaronJanaillac M, et al. Are mydriatic eyedrops dangerous for preterm infants? Arch Pediatr.2011 Mar;18(3):299302.
+5.Baron-Janaillac M, et al. Are mydriatic eyedrops dangerous for pre-term infants? Arch Pediatr.2011 Mar;18(3):299-302.
 
-6.Ozgun U, et al. Fatal necrotising enterocolitis due to mydriatic eye drops. J Coll Physicians Surg Pak. 2014 May;24 Suppl 2:S1479.
+6.Ozgun U, et al. Fatal necrotising enterocolitis due to mydriatic eye drops. J Coll Physicians Surg Pak. 2014 May;24 Suppl 2:S147-9.
 
-7.Lux AL, et al. Serious adverse side effects after pupillary dilation in preterm infants. J Fr Ophtalmol.2015 Mar;38(3):1938.
+7.Lux AL, et al. Serious adverse side effects after pupillary dilation in preterm infants. J Fr Ophtalmol.2015 Mar;38(3):193-8.
 
-8.Alpav A et al The local vasoconstriction of infant's skin following instillation of mydriatic eve drops. Eur J Clin Pharmacol 2010 Nov;66(11):11614.
+8.Alpav A et al The local vasoconstriction of infant's skin following instillation of mydriatic eve drops. Eur J Clin Pharmacol 2010 Nov;66(11):1161-4.
 
-9.Cohen AM, et al. The pain response to mydriatic eyedrops in preterm infants.J Perinatol. 2013 Jun;33(6):4625.
+9.Cohen AM, et al. The pain response to mydriatic eyedrops in preterm infants.J Perinatol. 2013 Jun;33(6):462-5.
 
-10.Rush R,et al. Systemic manifestations in response to mydriasis and physical examination during screening for retinopathy of prematurity. Retina. 2004 Apr;24(2):2425.
+10.Rush R,et al. Systemic manifestations in response to mydriasis and physical examination during screening for retinopathy of prematurity. Retina. 2004 Apr;24(2):242-5.
 
-11.Elibol Oet al. The influence of drop size of cvclopentolate. phenvlephrine and tropicamide on pupil dilatation and systemic side effects in infants. Acta Ophthalmol Scand. 1997 Apr;75(2):17880.
+11.Elibol Oet al. The influence of drop size of cvclopentolate. phenvlephrine and tropicamide on pupil dilatation and systemic side effects in infants. Acta Ophthalmol Scand. 1997 Apr;75(2):178-80.
 
-12.Teresa M. Myers,et al. Ophthalmic Medications in Pediatric Patients. Compr Ophthalmol Update.2005;6(2):85101.
+12.Teresa M. Myers,et al. Ophthalmic Medications in Pediatric Patients. Compr Ophthalmol Update.2005;6(2):85-101.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3146,7 +3155,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3169,7 +3178,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-
+  
 
 > **家长提问**
 >
@@ -3189,15 +3198,15 @@ AA制让恋爱更纯粹
 
 您孩子的近视风险
 
-5岁的眼轴超过了50%同龄男孩，有高度近视倾向。自然发展、不控制的话，成年眼轴预测26.126.3毫米（眼轴超过26毫即诊断高度近视，无论近视多少度）。
+5岁的眼轴超过了50%同龄男孩，有高度近视倾向。自然发展、不控制的话，成年眼轴预测26.1-26.3毫米（眼轴超过26毫即诊断高度近视，无论近视多少度）。  
 
 建议父母测量眼轴，看谁的眼轴突破或者接近26毫米，尤其是近视超过300度的那位。
 
-预测7岁出现眼轴发育加速，89岁出现近视度数，**目前需要每六个月测量眼轴，每天坚持2小时阳光时间**。
+预测7岁出现眼轴发育加速，8-9岁出现近视度数，**目前需要每六个月测量眼轴，每天坚持2小时阳光时间**。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3250,14 +3259,14 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-既然我爹有那么高的理科智商，而我妈一塌糊涂的数理化，你们猜，在我们家谁是幕后大老板？
+既然我爹有那么高的理科智商，而我妈一塌糊涂的数理化，你们猜，在我们家谁是幕后大老板？  
 必须是我妈啊，玩心眼儿那是信手拈来，把我爹玩得团团转，还特别听老婆的话。挣钱都归老婆管，老婆的大狼狗。
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4A44icOPial4LH7YbyzLWLHDtYACISghhcmF4sTGUE800K2eZOMZ6CibVoamicFia7KgYibFLwhPnPH3Z3g/640?wx_fmt=gif)
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3290,7 +3299,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/xicQVVic8TfFvDuZ1oRzgNicaicaRIsA1tE7Csu27FgSnBGgnbZNKdMLVbIwayvdMTA1Is6V3kp0SK7EDGjznOibzeQ/640?wx_fmt=png)
 
-近视的本质就是在童年时期，把眼球**像气球一样吹大、吹长**。
+近视的本质就是在童年时期，把眼球**像气球一样吹大、吹长**。  
 
 因此高度近视的眼球更大、更长。东亚人的眼眶更浅，于是大眼球前凸，像金鱼眼睛。
 
@@ -3308,7 +3317,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/xicQVVic8TfFvDuZ1oRzgNicaicaRIsA1tE7Csu27FgSnBGgnbZNKdMLVbIwayvdMTA1Is6V3kp0SK7EDGjznOibzeQ/640?wx_fmt=png)
 
-**近视镜片缩小物像**，在外人看来，你戴近视镜的眼睛更小、更迷茫。
+**近视镜片缩小物像**，在外人看来，你戴近视镜的眼睛更小、更迷茫。  
 
 戴近视的框架眼镜，会加重视疲劳，表现为眼睛酸胀、头痛。
 
@@ -3322,7 +3331,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/xicQVVic8TfFvDuZ1oRzgNicaicaRIsA1tE7Csu27FgSnBGgnbZNKdMLVbIwayvdMTA1Is6V3kp0SK7EDGjznOibzeQ/640?wx_fmt=png)
 
-*   戴软性隐形眼镜、RGP、做近视矫正手术，做眶周脂肪填充。
+*   戴软性隐形眼镜、RGP、做近视矫正手术，做眶周脂肪填充。  
 
 *   **重点是防盲！**近视是一种不可治愈的慢性疾病，度数越高，致盲风险越高。高度近视人群需要每年做防盲筛查：[近视人群防瞎指南](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650429658&idx=1&sn=917d015337b47a854579ef7c567e9d5e&chksm=87d58b21b0a202371fd514c3fe94b6d41f98f9070eae708db5b684b1f747cd69e8b0861b57b8&scene=21#wechat_redirect)
 
@@ -3330,7 +3339,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3357,7 +3366,7 @@ AA制让恋爱更纯粹
 
 这个星球是男权统治的，无论是财富还是权力都紧紧握在男权手里。女人，生来是辅助和服务男权的。
 
-**女孩，如果你想实现自己的梦想，会发现阻力很大。**
+**女孩，如果你想实现自己的梦想，会发现阻力很大。**  
 
 
 01
@@ -3406,7 +3415,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3439,7 +3448,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/xicQVVic8TfFvDuZ1oRzgNicaicaRIsA1tE7Csu27FgSnBGgnbZNKdMLVbIwayvdMTA1Is6V3kp0SK7EDGjznOibzeQ/640?wx_fmt=png)
 
-能戴！放心戴！怀孕和哺乳期间，荷尔蒙会**改变角膜的厚度、曲率和敏感度，屈光度数**也会改变，所以您需要重新配隐形眼镜，而且您会发现隐形眼镜有点油腻，也是正常的，**泪膜的溶菌酶增加**啦，杀菌嘛。
+能戴！放心戴！怀孕和哺乳期间，荷尔蒙会**改变角膜的厚度、曲率和敏感度，屈光度数**也会改变，所以您需要重新配隐形眼镜，而且您会发现隐形眼镜有点油腻，也是正常的，**泪膜的溶菌酶增加**啦，杀菌嘛。  
 
 推荐日抛型软性隐形眼镜。怀孕和哺乳期间不能做激光近视手术哦。部分孕妇和哺乳期女性会有干眼症的表现，**戴隐形眼镜时补充人工泪液**就好啦。
 
@@ -3453,7 +3462,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/xicQVVic8TfFvDuZ1oRzgNicaicaRIsA1tE7Csu27FgSnBGgnbZNKdMLVbIwayvdMTA1Is6V3kp0SK7EDGjznOibzeQ/640?wx_fmt=png)
 
-女性月经期是可以戴隐形眼镜的。
+女性月经期是可以戴隐形眼镜的。  
 
 由于荷尔蒙改变，一些口服避孕药的女性在月经期会**有眼睛干涩的症状**，而佩戴隐形眼镜则会加重眼干。
 
@@ -3473,9 +3482,9 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4AicLZRLgZNcia1ftNYBbbpFUiacFsN707XJBzhicvY2q5m8TdCficibDcpmh6cmyL6orrpTSnmiaXC4eg2w/640?wx_fmt=jpeg)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -3511,7 +3520,7 @@ AA制让恋爱更纯粹
 
 父母的爱，对我来说，不需要无微不至，而需要保持距离。我和两对父母都是客客气气，有爱，但是点到为止，有不满，用钱补上，皆大欢喜。
 
-不需要伴侣很爱我、每天陪伴我。在爱情方面，不愿意付出很多，不愿意接收很多。如果有一个男人每天在我家里晃来晃去，我会烦躁。或者说，我觉得事业比男人重要。爱情不可靠，存款最忠诚。
+不需要伴侣很爱我、每天陪伴我。在爱情方面，不愿意付出很多，不愿意接收很多。如果有一个男人每天在我家里晃来晃去，我会烦躁。或者说，我觉得事业比男人重要。爱情不可靠，存款最忠诚。  
 
 02
 --
@@ -3542,7 +3551,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3571,17 +3580,17 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-的确，**女性黄斑裂孔的患病率更高，**大约是男性的2倍（Br J Ophthalmol. 2019），特别是35岁以后的女性，发病高峰期在6569岁。而**高度近视（眼轴>26毫米）的眼球，会增加黄斑裂孔的患病几率**。
+的确，**女性黄斑裂孔的患病率更高，**大约是男性的2倍（Br J Ophthalmol. 2019），特别是35岁以后的女性，发病高峰期在65-69岁。而**高度近视（眼轴>26毫米）的眼球，会增加黄斑裂孔的患病几率**。
 
 对于您的右眼，在左眼黄斑裂孔发病之后的5年里，出现黄斑裂孔的风险会增加。
 
-建议您每半年看眼底科医生，做【黄斑OCT】，排查黄斑裂孔。大约有10%1/3的黄斑裂孔患者，在第一只眼发病的5年内，出现第二只眼睛的黄斑裂孔，特别是有玻璃体后脱离的眼睛。
+建议您每半年看眼底科医生，做【黄斑OCT】，排查黄斑裂孔。大约有10%-1/3的黄斑裂孔患者，在第一只眼发病的5年内，出现第二只眼睛的黄斑裂孔，特别是有玻璃体后脱离的眼睛。
 
 另外，您的左眼仍然需要每年【散瞳检查周边视网膜】，看有无视网膜裂孔，做【视盘OCT检查】，排查开角型青光眼。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3630,7 +3639,7 @@ AA制让恋爱更纯粹
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3675,7 +3684,7 @@ AA制让恋爱更纯粹
 
 **4\. 对比敏感度检测**
 
-PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊症患者表现为对比敏感度下降。
+Pelli-Robson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊症患者表现为对比敏感度下降。
 
 **5\. 眼科OCT扫描**
 
@@ -3689,13 +3698,13 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 得了飞蚊症怎么办？
 
-首先，**没有一种眼药水和口服药能改善或消除玻璃体混浊**，中药想都不要想。这是人体正常的老化现象，大多数人可以定期到眼科医生的门诊随访，大脑会适应和逐渐屏蔽这些阴影。
+首先，**没有一种眼药水和口服药能改善或消除玻璃体混浊**，中药想都不要想。这是人体正常的老化现象，大多数人可以定期到眼科医生的门诊随访，大脑会适应和逐渐屏蔽这些阴影。  
 
 如果玻璃体混浊影响生活质量，可以**考虑YAG激光消融、27G小切口的玻璃体切除手术**。手术是在眼球打三个小孔，显微器械进入眼内，清除混浊的玻璃体。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3718,7 +3727,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
-戴隐形眼镜的同学，**出现以下情况**，说明您需要找眼科医生看看了。
+戴隐形眼镜的同学，**出现以下情况**，说明您需要找眼科医生看看了。  
 
 01
 
@@ -3756,7 +3765,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 减少佩戴时间，增加隐形眼镜的清洁（去蛋白）和更新频率，随身带隐形眼镜专用的人工泪液，早晚用第2代抗组胺滴眼液，止痒。和缩小结膜乳头。
 
-图片可能引起不适
+图片可能引起不适  
 
 点击空白处查看内容
 
@@ -3766,11 +3775,11 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 03
 
-眼睛持续充血，说明干眼症，**角膜缺氧**。
+眼睛持续充血，说明干眼症，**角膜缺氧**。  
 
 您需要使用人工泪液。如果突然出现下图的充血，黑眼珠周围一圈都是红色的血丝，说明存在**角膜感染**。
 
-图片可能引起不适
+图片可能引起不适  
 
 点击空白处查看内容
 
@@ -3782,7 +3791,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 如果您突然有以下表现：图1**满满的红血丝**，图2**大量的****黄色眼屎**，图3**结膜水肿**；同时有以下不适感：眼磨、刺痛、流泪、怕光，但是**对视力影响不大**。
 
-图片可能引起不适
+图片可能引起不适  
 
 点击空白处查看内容
 
@@ -3792,11 +3801,11 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 这是**细菌性结膜炎**，自限性疾病，若不用药，10天痊愈。但是医生会给您开抗生素眼药水来缩短病程，规律用药，一天四次，最多7天。
 
-感染期间请充分清洁双手，停戴隐形眼镜，停止化眼妆，眼部冷敷和使用人工泪液会让您舒适一些。
+感染期间请充分清洁双手，停戴隐形眼镜，停止化眼妆，眼部冷敷和使用人工泪液会让您舒适一些。  
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -3843,13 +3852,13 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-如果山东父母说：爹妈不指望你孝顺，不需要你的钱，那你快逃，他们要的是你听话，成为顺从的木偶。他们的面子，比你的命还重要。
+如果山东父母说：爹妈不指望你孝顺，不需要你的钱，那你快逃，他们要的是你听话，成为顺从的木偶。他们的面子，比你的命还重要。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4BBsbcqyFOPyBfZl3ibB0UKqkcqkvldGsVHCaKTB4V6ByS8XicFxCwMNQsUShjZuDo7CNZavP5MdUvg/640?wx_fmt=gif)
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3890,7 +3899,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -3932,7 +3941,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 右眼22.86毫米，左眼22.87毫米。对于4岁的孩子来说，这个眼轴数值还是略长的（大陆4岁女孩平均22毫米、4岁男孩平均22.5毫米\[1\]）。说明孩子携带近视基因，以后还是要近视的。
 
-结合孩子的角膜曲率，大约眼轴生长到23.524毫米，7岁左右临床会诊断近视。但是，在那之前，眼轴会首先加速生长。因此**您孩子需要每六个月测量眼轴**，监测眼轴发育速度。如果每年的眼轴增幅超过0.4毫米，说明近视基因激活了。
+结合孩子的角膜曲率，大约眼轴生长到23.5-24毫米，7岁左右临床会诊断近视。但是，在那之前，眼轴会首先加速生长。因此**您孩子需要每六个月测量眼轴**，监测眼轴发育速度。如果每年的眼轴增幅超过0.4毫米，说明近视基因激活了。
 
 孩子的角膜曲率是正常的。它代表着角膜的形状，2岁就固定了。它只是影响近视度数，但是不代表近视的严重程度。
 
@@ -3942,7 +3951,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 为什么使用生理性远视储备来预测近视，**不那么客观和精准**呢？一是受散瞳眼药水种类的影响，使用快散、中散、慢散这三种散瞳眼药水，得到的生理性远视储备数值各不同。慢散，也就是使用1%阿托品凝胶，测量的生理性远视储备最准确，但是毒副作用略大，儿童表现为体温升高、脸红、口干、老花眼症状。特别是使用1%阿托品凝胶之后的老花眼症状，影响儿童读书写字，需要3周才能恢复。我本人不推荐每年散瞳验光、测量生理性远视储备，我们更倾向于使用散瞳验光来确诊近视。**眼轴才是预测儿童近视最精准的指标，5分钟完成，不需要药物**。
 
-而且临床研究发现\[1\]，对于36岁儿童来说，眼轴增长1毫米，远视度数只下降45度（等比例的话，应该下降275度）。因此，生理性远视储备这个指标，远远不如眼轴精准和灵敏。
+而且临床研究发现\[1\]，对于3-6岁儿童来说，眼轴增长1毫米，远视度数只下降45度（等比例的话，应该下降275度）。因此，生理性远视储备这个指标，远远不如眼轴精准和灵敏。
 
 02
 --
@@ -3957,11 +3966,11 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 参考文献：
 
-1. Ophthalmology 2017;124:18261838.
+1. Ophthalmology 2017;124:1826-1838.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4002,19 +4011,19 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 循证医学研究发现\[3\]，切除翼状胬肉，最不容易复发的方式是**单纯性巩膜暴露术+自体角膜缘结膜瓣移植术**，而且术后并发症的发生率更低，优于单纯性巩膜暴露术+丝裂霉素C治疗。
 
-医生们通常在翼状胬肉切除的手术中使用丝裂霉素C，虽然可以预防复发，但是存在球结膜坏死和巩膜溶解的风险。
+医生们通常在翼状胬肉切除的手术中使用丝裂霉素C，虽然可以预防复发，但是存在球结膜坏死和巩膜溶解的风险。  
 
 参考文献：
 
 1\. Cornea. 2019 Nov 5. Pterygium Is Related to Short AxialLength.
 
-2\. Surv Ophthalmol. 2018 Sep  Oct;63(5):719735. Prevalenceand risk factors of pterygium: a systematic review and metaanalysis.
+2\. Surv Ophthalmol. 2018 Sep - Oct;63(5):719-735. Prevalenceand risk factors of pterygium: a systematic review and meta-analysis.
 
-3\. Int J Ophthalmol. 2015 Oct 18;8(5):106773. Bare scleraresection followed by mitomycin C and/or autograft limbus conjunctiva in thesurgery for pterygium: a Metaanalysis.
+3\. Int J Ophthalmol. 2015 Oct 18;8(5):1067-73. Bare scleraresection followed by mitomycin C and/or autograft limbus conjunctiva in thesurgery for pterygium: a Meta-analysis.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -4069,7 +4078,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4110,7 +4119,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4177,11 +4186,11 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 2\. Ophthalmologica 2016;235:78–86.
 
-3\. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):7817.
+3\. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):781-7.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4238,7 +4247,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4261,7 +4270,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-
+  
 
 > **家长提问**
 >
@@ -4302,7 +4311,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4341,7 +4350,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4364,9 +4373,9 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
-天天画眼线的同学，一定要充分卸妆，不共用眼妆产品。
-1\. 二次卸妆，使用专业的眼睑清洁泡沫；
-2\. 不要粗暴撕拉假睫毛；
+天天画眼线的同学，一定要充分卸妆，不共用眼妆产品。  
+1\. 二次卸妆，使用专业的眼睑清洁泡沫；  
+2\. 不要粗暴撕拉假睫毛；  
 3\. 不与别人共用眼部化妆品，不建议使用商场化妆品试用装，因为容易细菌超标。
 
 
@@ -4392,18 +4401,18 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 -------
 
-**麦粒肿是眼皮“青春痘”**，先是眼睑红肿热痛，出现小脓头，可以长在外面，也可以长在里面。然后破溃流出脓或者油脂，经过710天会痊愈。
+**麦粒肿是眼皮“青春痘”**，先是眼睑红肿热痛，出现小脓头，可以长在外面，也可以长在里面。然后破溃流出脓或者油脂，经过7-10天会痊愈。
 
-![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4CR2NmOTviaia5XMVeOoUrUyrQNeSkHeeL4ArqzaZxxcGurxCSor5nExnUFibicsafjiaI8JGBELnPERTA/640?wx_fmt=jpeg)
+![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4CR2NmOTviaia5XMVeOoUrUyrQNeSkHeeL4ArqzaZxxcGurxCSor5nExnUFibicsafjiaI8JGBELnPERTA/640?wx_fmt=jpeg)  
 
-原因是睫毛根部的汗腺或皮脂腺被皮脂、皮屑堵塞，金黄色葡萄球菌在内部繁殖。常见于化眼妆、共用眼妆的人群。
+原因是睫毛根部的汗腺或皮脂腺被皮脂、皮屑堵塞，金黄色葡萄球菌在内部繁殖。常见于化眼妆、共用眼妆的人群。  
 不会影响视力，可以在家自我治疗，**每天清洁睫毛根部**（使用无泪配方的婴儿沐浴液或专门的眼睑清洁泡沫），**热敷眼睛，不挤不挑**。
 
-口服对乙酰氨基酚可以止痛，使用抗生素滴眼液会加速痊愈。
+口服对乙酰氨基酚可以止痛，使用抗生素滴眼液会加速痊愈。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4426,9 +4435,9 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-如果孩子想做**飞行员、警察**，需要从小做好眼睛健康管理：
+如果孩子想做**飞行员、警察**，需要从小做好眼睛健康管理：  
 
-1\. **三岁开始测量眼轴**，常用的测量仪器是IOLMaster。无需散瞳，不接触眼球，几分钟就完成。监测眼轴发育速度，可以第一时间捕捉到近视基因激活的时机。（[大陆儿童的正常眼轴是多少？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650426131&idx=2&sn=93d577c5a12392eeb24c7ae56cd5e3b6&chksm=87d598e8b0a211fe72fa876321edb463a2667cd3aad97665f3bde3a5139f6ce30314a9404236&scene=21#wechat_redirect)）
+1\. **三岁开始测量眼轴**，常用的测量仪器是IOL-Master。无需散瞳，不接触眼球，几分钟就完成。监测眼轴发育速度，可以第一时间捕捉到近视基因激活的时机。（[大陆儿童的正常眼轴是多少？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650426131&idx=2&sn=93d577c5a12392eeb24c7ae56cd5e3b6&chksm=87d598e8b0a211fe72fa876321edb463a2667cd3aad97665f3bde3a5139f6ce30314a9404236&scene=21#wechat_redirect)）
 
 2\. 近视之前，
 
@@ -4436,7 +4445,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4DGJXfRMICXoM2f61tQ3POkOjprCM4Wdh2cLghyT3ICyXxWbmeNEf6ico559j9ono90Uj4CGFibd9Aw/640?wx_fmt=jpeg)
 
-3\. 在孩子近视发病之后，第一时间选择角膜塑形镜和/或0.01%阿托品滴眼液，不要犹豫！压制住眼轴的失控生长。
+3\. 在孩子近视发病之后，第一时间选择角膜塑形镜和/或0.01%阿托品滴眼液，不要犹豫！压制住眼轴的失控生长。  
 
 目标是青春期结束之后的**眼轴不超过25毫米**，这样不会损伤夜间视力。
 
@@ -4446,7 +4455,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4469,11 +4478,11 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
-我觉得在家庭里，父亲不是必需品，妈妈最重要。一个明事理、情绪稳定的母亲或祖母、外祖母，完全可以取代父亲，教养优秀的孩子。
+我觉得在家庭里，父亲不是必需品，妈妈最重要。一个明事理、情绪稳定的母亲或祖母、外祖母，完全可以取代父亲，教养优秀的孩子。  
 
-孔子、孟子都是幼年丧父，由母亲教育成才；奥巴马是单亲妈妈养育的美国总统。很多优秀的帝王是守寡的祖母培养，如果有父亲在，太子的死亡率反而高。
+孔子、孟子都是幼年丧父，由母亲教育成才；奥巴马是单亲妈妈养育的美国总统。很多优秀的帝王是守寡的祖母培养，如果有父亲在，太子的死亡率反而高。  
 
-随着女人步入社会、参加工作，**高收入女人完全可以独自抚养孩子**，父亲的角色会被弱化。
+随着女人步入社会、参加工作，**高收入女人完全可以独自抚养孩子**，父亲的角色会被弱化。  
 
 而且父爱的成本太高。父亲很容易对婚姻不忠诚，离婚就会带走一半家产，年老回来勒索子女养老。
 
@@ -4485,9 +4494,9 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4DGJXfRMICXoM2f61tQ3POkrtafS9ARRWDUjdf7N0Wj9CdHL7QDjJGBa47U7ebNEHpzUhjrSiaaeOA/640?wx_fmt=gif)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -4518,7 +4527,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 那些高情商、高智商、思维缜密的精英男人是极少的，他们适合成为老师、前辈、事业合作伙伴，唯独不适合成为我的伴侣。我们会火并，互相伤害。
 
-**智商不如我的男人，更不适合成为伴侣。**阿弥陀佛，我会扎漏他们的自尊。
+**智商不如我的男人，更不适合成为伴侣。**阿弥陀佛，我会扎漏他们的自尊。  
 
 经济实力强的女人不需要婚姻
 
@@ -4534,6 +4543,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -4548,7 +4558,6 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|孩子学习压力大，可以带着OK镜学习吗？
 ========================
@@ -4559,7 +4568,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-
+  
 
 > **家长提问**
 >
@@ -4581,7 +4590,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 由于微信推送机制调整
 
@@ -4595,7 +4604,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
+
 
 丐帮北京分舵
 ======
@@ -4618,7 +4627,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4643,7 +4652,7 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 强光手电通常使用LED灯泡（不烫）或氙气灯泡（烫手）。它们色温高，看起来又白又亮。
 
-但是这两种光源的能量不高，因为光谱中300400纳米的紫外线成分不多，不会像紫外线灯那样，引起急性的角膜上皮损伤。
+但是这两种光源的能量不高，因为光谱中300-400纳米的紫外线成分不多，不会像紫外线灯那样，引起急性的角膜上皮损伤。
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4ALQibMScmmU7x6VIhNwvOdSo4uG54gnbkmXnb7j05DBQ5icOFaK6kicWlIoNMIUyHPY5BGV1MmYbSqA/640?wx_fmt=jpeg)
 
@@ -4651,12 +4660,12 @@ PelliRobson检查表和Mars 字母对比敏感度测试是最常用的。飞蚊�
 
 只有原子弹、氢弹的强光，才能瞬间烧伤视网膜色素上皮，引起永久的闪光盲。手电筒没这么大的威力。
 
-至于被强光照射眼睛之后，患者感觉眼睛酸，过几天就可以自然缓解。
+至于被强光照射眼睛之后，患者感觉眼睛酸，过几天就可以自然缓解。  
 在生活中，**对眼睛有害的光源是紫外线灯、电焊火花、激光笔、正午直射的太阳**。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
@@ -4730,6 +4739,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -4744,7 +4754,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 滴了人工泪液，眼周出现白点，是因为干眼症？
 =====================
@@ -4755,7 +4764,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
-多读书，用脑思考，就不会自己吓自己。
+多读书，用脑思考，就不会自己吓自己。  
 
 01
 --
@@ -4768,20 +4777,22 @@ PUA好上手
 
 哪种干眼症可怕？**睑板腺萎缩或者干燥综合征，需要做【眼表综合分析】确诊。**它们治不好，眼睛特别干，滴普通眼药水缓解不了。
 
-绝大部分人的眼睛干涩，滴人工泪液就可以缓解。如同皮肤干涩了需要抹乳液，嘴巴干需要喝水润喉。
+绝大部分人的眼睛干涩，滴人工泪液就可以缓解。如同皮肤干涩了需要抹乳液，嘴巴干需要喝水润喉。  
 
 02
 --
 
 人工泪液很安全
 
-人工泪液是缓解眼干的眼药水，常见成分是玻璃酸钠（透明质酸钠）、羟甲基纤维素等。这些成分在护肤品也很常见，作用就是锁水，让水在眼睛表面停留久一点。
+人工泪液是缓解眼干的眼药水，常见成分是玻璃酸钠（透明质酸钠）、羟甲基纤维素等。这些成分在护肤品也很常见，作用就是锁水，让水在眼睛表面停留久一点。  
 
 **有些人，使用浓度高的玻璃酸钠滴眼液，例如0.3%爱丽，玻璃酸钠会析出，在眼尾皮肤留下白色物质。**如同在衣服留下的汗渍（盐和尿素），如同有的面膜敷完以后皮肤的搓泥现象。
 
 所以，滴了人工泪液，出现白色物质，不代表你的眼睛太干了，而是这种人工泪液的配方不适合你，你需要选择低一档的浓度，例如0.1%的。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
+
+  
 
 
 
@@ -4796,8 +4807,6 @@ PUA好上手
 
 
 
-
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 把爱情和婚姻分开对待
 ==========
@@ -4838,6 +4847,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -4852,7 +4862,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|眼轴出现回退，需要调整阿托品浓度吗？
 =======================
@@ -4863,7 +4872,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-
+  
 
 > **家长提问**
 >
@@ -4887,6 +4896,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -4901,14 +4911,13 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 关灯看手机，对眼睛有哪些负面影响？
 =================
 
 原文地址：[关灯看手机，对眼睛有哪些负面影响？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449299&idx=1&sn=df45c9326398dd97451152bc0a426654&chksm=8c90941ceaf862c975fbba3f0b9415ef7cc7bb9b8f79b1b5db17f4b05198bae3fe14b6b52dce&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
@@ -4924,7 +4933,7 @@ PUA好上手
 
 **第二，手机屏幕的蓝光让我们晚上不想睡，早上不想起。**
 
-为什么呢？跟光有关。人类的昼夜节律是由光来调节的。白天的光抑制褪黑素的分泌，而到了夜间，凌晨124点则是褪黑素分泌的高峰。因此在夜间，当眼睛暴露在光照明下（例如夜间照明的灯、手机、电视和电脑亮着的屏幕），就会抑制正常的褪黑素分泌，身体出现慢性的生物钟紊乱、昼夜节律的推迟：白天疲劳、夜间入睡慢、慢性失眠、食欲差、抑郁情绪等。
+为什么呢？跟光有关。人类的昼夜节律是由光来调节的。白天的光抑制褪黑素的分泌，而到了夜间，凌晨12-4点则是褪黑素分泌的高峰。因此在夜间，当眼睛暴露在光照明下（例如夜间照明的灯、手机、电视和电脑亮着的屏幕），就会抑制正常的褪黑素分泌，身体出现慢性的生物钟紊乱、昼夜节律的推迟：白天疲劳、夜间入睡慢、慢性失眠、食欲差、抑郁情绪等。
 
 如果您晚上看手机和iPad导致越看越清醒，入睡时间推迟，可以睡前口服褪黑素片，提高睡眠质量。或者您睡前不得不使用手机、iPad、电脑，又不希望影响睡眠质量，则需要关灯、把屏幕亮度调到最低，或者开灯、戴蓝光过滤眼镜。     
 
@@ -4942,6 +4951,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -4956,7 +4966,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 招惹饭桶
 ====
@@ -4967,21 +4976,21 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
-我姐是自带八卦光环的女人。她有先天性心脏病，做了3次开胸手术，童年一直瘦弱。不爱吃饭，也不馋。
+我姐是自带八卦光环的女人。她有先天性心脏病，做了3次开胸手术，童年一直瘦弱。不爱吃饭，也不馋。  
 
 
 厨神觉醒
 
-大学毕业之前，她跟我一样不会做饭。结婚第一年，每个礼拜都要回娘家搬食物，堪比鬼子扫荡。我妈给她准备各种吃食带走，小咸菜也要，恨不得墙皮刮三层，塞满整个后备箱。我还嘲笑她，结婚只把屁股嫁掉，嘴巴留在娘家。
+大学毕业之前，她跟我一样不会做饭。结婚第一年，每个礼拜都要回娘家搬食物，堪比鬼子扫荡。我妈给她准备各种吃食带走，小咸菜也要，恨不得墙皮刮三层，塞满整个后备箱。我还嘲笑她，结婚只把屁股嫁掉，嘴巴留在娘家。  
 
 自从有了孩子，**母爱激活了她的厨艺**。从此开挂，煎炒烹炸，煲汤、包饺子、蒸馒头，日本寿司、韩国石锅拌饭、手抓饭、牛排……各种菜式，有模有样。
 
-她在研究做菜方面下了苦工。最初拿我练手。九转大肠，嚼不动，累得我腮帮子疼。水煮肉片像咬轮胎。慢慢地，升级为大厨。她的家也成为亲友聚会的场所。我姐准备的食物，干净、好吃、不油腻。我妈也打电话问她怎么做麻辣虾。
+她在研究做菜方面下了苦工。最初拿我练手。九转大肠，嚼不动，累得我腮帮子疼。水煮肉片像咬轮胎。慢慢地，升级为大厨。她的家也成为亲友聚会的场所。我姐准备的食物，干净、好吃、不油腻。我妈也打电话问她怎么做麻辣虾。  
 
 
 吃货的厨娘
 
-我姐是小区最受欢迎的孩子妈妈。和邻居合作接送孩子们。对方爸爸早上开车去送，晚上我姐开车一起接回来。邻居孩子们经常在我姐家里吃晚饭，不想吃亲妈做的饭了。
+我姐是小区最受欢迎的孩子妈妈。和邻居合作接送孩子们。对方爸爸早上开车去送，晚上我姐开车一起接回来。邻居孩子们经常在我姐家里吃晚饭，不想吃亲妈做的饭了。  
 
 我和表妹也不定期去蹭吃蹭喝，都觉得我姐做饭比我妈好吃。很快，我姐身边聚拢了一群吃货。
 
@@ -4995,6 +5004,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5009,7 +5019,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 外科医生爱出轨？
 ========
@@ -5033,7 +5042,7 @@ PUA好上手
 
 现代社会男女各50%出轨率，而对于高收入的外科医生来说，出轨率只能更高。
 
-随着他晋升主治，就不再是你的爱人了，而是一个拥有稳健现金流的公司。在他的4065岁职业生涯，至少产生累积2000万人民币的收入（特别是一二线城市）。而你像是抱着金娃娃逛街，别人不抢你，抢谁？
+随着他晋升主治，就不再是你的爱人了，而是一个拥有稳健现金流的公司。在他的40-65岁职业生涯，至少产生累积2000万人民币的收入（特别是一二线城市）。而你像是抱着金娃娃逛街，别人不抢你，抢谁？
 
 **对人类的贪婪来说，道德在金钱面前脆弱不堪。**你们的爱情，一定抵抗不了色诱。就像阿里副总裁绯闻一样，你的原配地位并不安全，尤其你无法给他的事业提供帮助。随着他晋升副主任，升官发财换老婆很常见。
 
@@ -5051,7 +5060,7 @@ PUA好上手
 
 榨干他的劳动价值
 
-从40岁开始，一个忙碌的外科医生可以同时供2套房，记住这点。忽视他工资卡和奖金卡的数字，他有的是办法藏匿收入，但是让他拼命还房贷就对了。因为婚内所有的房产，离婚时都要对半分。
+从40岁开始，一个忙碌的外科医生可以同时供2套房，记住这点。忽视他工资卡和奖金卡的数字，他有的是办法藏匿收入，但是让他拼命还房贷就对了。因为婚内所有的房产，离婚时都要对半分。  
 
 多买香港和美国寿险。给孩子、你、他都买，每年至少存20万。万一他猝死、被患者砍杀，会有大额补偿。而且寿险离婚不对半分。
 
@@ -5069,6 +5078,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5083,7 +5093,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 戴了眼镜，近视度数越来越高？
 ==============
@@ -5094,7 +5103,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-近视的孩子注意啦！框架眼镜只是**矫正近视（correction ）**，让人看清远处而已，做不到**控制近视（control）**。
+近视的孩子注意啦！框架眼镜只是**矫正近视（correction ）**，让人看清远处而已，做不到**控制近视（control）**。  
 
 **近视是一种慢性疾病。**在童年时期，眼球在近视基因的作用下出现发育失控——像气球一样越吹越大、成为又大又长的椭球体。因此，近视人群都有程度**不同的突眼**。
 
@@ -5102,27 +5111,27 @@ PUA好上手
 
  成人近视200度不等于安全
 
-事实上，近视的严重程度，不以近视度数来客观衡量，而是以眼球的前后长度（眼轴），也就是**看眼球大小**。眼轴的长度，意味着近视基因把眼球拉长的程度，意味着珍贵的视网膜和脉络膜被拉薄的程度，意味着**近视并发症的危险程度**。
+事实上，近视的严重程度，不以近视度数来客观衡量，而是以眼球的前后长度（眼轴），也就是**看眼球大小**。眼轴的长度，意味着近视基因把眼球拉长的程度，意味着珍贵的视网膜和脉络膜被拉薄的程度，意味着**近视并发症的危险程度**。  
 
-很多近视200度的患者突发视网膜脱离，损伤了视力，很冤，觉得自己倒霉。事实上，他们大多是长眼轴人群。**通常眼轴在26毫米以上**，只是因为角膜曲率平，抵消掉了一些近视度数（就像做了角膜激光手术），所以表现为低度近视。因此，所有近视人群，至少需要测量一次眼轴，评估自己近视的致盲风险。
-**记住：26毫米以上是危险眼轴。**
+很多近视200度的患者突发视网膜脱离，损伤了视力，很冤，觉得自己倒霉。事实上，他们大多是长眼轴人群。**通常眼轴在26毫米以上**，只是因为角膜曲率平，抵消掉了一些近视度数（就像做了角膜激光手术），所以表现为低度近视。因此，所有近视人群，至少需要测量一次眼轴，评估自己近视的致盲风险。  
+**记住：26毫米以上是危险眼轴。**  
 
 
  框架眼镜对近视儿童不是必需的
 
-近视患病率高得可怕。在2013年以后，中国1618岁儿童**近视率已经****高达84.8%**，**高度近视率19.3%**\[1\]。
+近视患病率高得可怕。在2013年以后，中国16-18岁儿童**近视率已经****高达84.8%**，**高度近视率19.3%**\[1\]。  
 
-眼科医生的防盲任务是很重的，1/5人口是有致盲风险的高度近视。因此，中国儿童需要从**3****岁开始测量眼轴，评估近视风险**。
+眼科医生的防盲任务是很重的，1/5人口是有致盲风险的高度近视。因此，中国儿童需要从**3****岁开始测量眼轴，评估近视风险**。  
 
-儿童近视发病之后，第一时间开始近视的控制治疗。框架眼镜没有任何控制近视的能力\[2\]。因此只戴框架眼镜的近视儿童，在高峰期仍然每年涨100度近视，甚至每半年就需要换一副框架眼镜。
+儿童近视发病之后，第一时间开始近视的控制治疗。框架眼镜没有任何控制近视的能力\[2\]。因此只戴框架眼镜的近视儿童，在高峰期仍然每年涨100度近视，甚至每半年就需要换一副框架眼镜。  
 
-不要犹豫！马上给近视儿童选择**戴角膜塑形镜\[3\]和使用0.01%阿托品滴眼液**\[4\]，它们安全有效，可以把眼轴发育速度降下来，是控制儿童近视的利器。另外，多焦点镜片的框架眼镜虽然卖得火，但在控制儿童近视的表现并不出色\[5\]，无法与角膜塑形镜和阿托品滴眼液比肩。
+不要犹豫！马上给近视儿童选择**戴角膜塑形镜\[3\]和使用0.01%阿托品滴眼液**\[4\]，它们安全有效，可以把眼轴发育速度降下来，是控制儿童近视的利器。另外，多焦点镜片的框架眼镜虽然卖得火，但在控制儿童近视的表现并不出色\[5\]，无法与角膜塑形镜和阿托品滴眼液比肩。  
 
 
 儿童近视控制的目标
 
-我们的目标并非苛求孩子不近视，而是成年的**近视度数不超过300度**、**眼轴控制在25毫米以内**，极大降低中晚年的致盲风险。
-而且，近视300度左右，到了中年，老花眼的症状更轻，很可能不需要老花镜啦。
+我们的目标并非苛求孩子不近视，而是成年的**近视度数不超过300度**、**眼轴控制在25毫米以内**，极大降低中晚年的致盲风险。  
+而且，近视300度左右，到了中年，老花眼的症状更轻，很可能不需要老花镜啦。  
 
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
@@ -5131,21 +5140,19 @@ PUA好上手
 
 参考文献：
 
-1\. Dong L, et al. PREVALENCE AND TIME TRENDS OF MYOPIA IN CHILDREN AND ADOLESCENTS IN CHINA: A Systemic Review and MetaAnalysis. Retina. 2020.
+1\. Dong L, et al. PREVALENCE AND TIME TRENDS OF MYOPIA IN CHILDREN AND ADOLESCENTS IN CHINA: A Systemic Review and Meta-Analysis. Retina. 2020.
 
-2\. Huang J, et al. Efficacy Comparison of 16 Interventions for Myopia Control in Children: A Network Metaanalysis. Ophthalmology. 2016.
+2\. Huang J, et al. Efficacy Comparison of 16 Interventions for Myopia Control in Children: A Network Meta-analysis. Ophthalmology. 2016.
 
-3\. Guan M, et al. Changes in axial length after orthokeratology lens treatment for myopia: a metaanalysis. Int Ophthalmol. 2020.
+3\. Guan M, et al. Changes in axial length after orthokeratology lens treatment for myopia: a meta-analysis. Int Ophthalmol. 2020.
 
-4\. Zhao Y, et al. Atropine 0.01% eye drops slow myopia progression: a systematic review and Metaanalysis. Int J Ophthalmol. 2019.
+4\. Zhao Y, et al. Atropine 0.01% eye drops slow myopia progression: a systematic review and Meta-analysis. Int J Ophthalmol. 2019.
 
-5\. Kaphle D, et al. Multifocal spectacles in childhood myopia: Are treatment effects maintained? A systematic review and metaanalysis. Surv Ophthalmol. 2020 Mar  Apr.
+5\. Kaphle D, et al. Multifocal spectacles in childhood myopia: Are treatment effects maintained? A systematic review and meta-analysis. Surv Ophthalmol. 2020 Mar - Apr.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
-
-
+  
 
 
 
@@ -5157,7 +5164,9 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
+
+
+
 
 子女在你背后说什么？
 ==========
@@ -5186,6 +5195,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5200,7 +5210,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|孩子有散光，裸眼视力可以发育到1.2和1.5吗？
 =============================
@@ -5233,6 +5242,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5247,7 +5257,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 关于某L疗法，我的回应
 ===========
@@ -5292,7 +5301,7 @@ PUA好上手
 
 我个人认为，一个成功的儿童近视控制方案，必须经受住【2个考验】：
 
-①79岁疯涨期考验：眼轴每年增幅<0.3毫米；
+①7-9岁疯涨期考验：眼轴每年增幅<0.3毫米；
 
 ②疯涨季节考验：在秋冬春季节，一个季度的眼轴增幅<0.1毫米。
 
@@ -5306,6 +5315,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5320,7 +5330,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 就是嘴硬
 ====
@@ -5357,6 +5366,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5371,7 +5381,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 脚趾甲与晚年
 ======
@@ -5419,6 +5428,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5433,7 +5443,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 高度近视人群，这些运动不要做！
 ===============
@@ -5453,7 +5462,7 @@ PUA好上手
 
 眼球不能受外伤
 
-包括：拳击、球类撞击、跳水、撞到玻璃门、打篮球被碰眼睛、打闹被碰到眼睛等。这些会诱发视网膜脱离，男性多见。
+包括：拳击、球类撞击、跳水、撞到玻璃门、打篮球被碰眼睛、打闹被碰到眼睛等。这些会诱发视网膜脱离，男性多见。  
 眼轴已经>26毫米的初高中学生需要注意，在中考和高考的那年，避免跟同学打闹、打篮球等。一旦眼睛被碰伤、发生视网膜脱离，需要做手术、休学至少1个月。
 
 02
@@ -5481,10 +5490,11 @@ PUA好上手
 
 他们或者认为自己人品好、不会发生倒霉的并发症，或者误解医生都是骗人骗钱的，所以从来不去看眼科医生。而他们恰恰是眼睛出事故的高危人群。我曾经在3天之内遇到了2位高度近视、无症状青光眼家长。他们在我的强烈建议下测量眼压，发现眼压>25mmHg（他们眼轴均超过了27毫米，是开角型青光眼的高危人群），而健康人群眼压不超过18 mmHg。如果那天门诊不做检查，他们不会知道自己已经发生青光眼了。
 
-最后嘱咐高度近视的读者，**规律缴纳社保**。4060岁是高度近视并发症的高峰期。如果发生视网膜脱离、黄斑出血、青光眼这些并发症，治疗费用都很贵，商业保险极少赔付，只有医保会保护你们。
+最后嘱咐高度近视的读者，**规律缴纳社保**。40-60岁是高度近视并发症的高峰期。如果发生视网膜脱离、黄斑出血、青光眼这些并发症，治疗费用都很贵，商业保险极少赔付，只有医保会保护你们。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5499,7 +5509,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|近视前期0.05%阿托品滴眼液治疗
 ======================
@@ -5518,11 +5527,11 @@ PUA好上手
 >
 > 2023年2月发布的香港随机对照临床试验\[2\]：
 >
-> ①0.05%阿托品滴眼液可以推迟49岁儿童的近视发病；
+> ①0.05%阿托品滴眼液可以推迟4-9岁儿童的近视发病；
 >
 > ②持续用药2年，0.05%阿托品滴眼液最常见的副作用是畏光，比例是12.9%，没有发现严重的住院治疗副作用。使用0.05%阿托品滴眼液的儿童，畏光率与使用安慰剂（生理盐水）的儿童没有差别。也就是说，有一部分儿童天然畏光，在户外自觉阳光刺眼。
 >
-> ③0.01%滴眼液无法推迟49岁儿童近视发病，疗效太弱。
+> ③0.01%滴眼液无法推迟4-9岁儿童近视发病，疗效太弱。
 
 *   文章最后有2个成功治疗案例、1个不治疗的案例
 
@@ -5535,11 +5544,11 @@ PUA好上手
 
 **目的：**
 
-评估阿托品滴眼液的两个浓度（0.01%和0.05%）能否推迟49岁儿童近视发病。
+评估阿托品滴眼液的两个浓度（0.01%和0.05%）能否推迟4-9岁儿童近视发病。
 
 **测试对象：**
 
-49岁尚未近视的儿童，共计353名完成了临床试验。这些儿童的远视储备为0100度（经过散瞳验光/睫状肌麻痹验证），随机分到三组：使用0.05%阿托品滴眼液（116人）、使用0.01%阿托品滴眼液（122人）、使用安慰剂（0.9%氯化钠，115人）
+4-9岁尚未近视的儿童，共计353名完成了临床试验。这些儿童的远视储备为0-100度（经过散瞳验光/睫状肌麻痹验证），随机分到三组：使用0.05%阿托品滴眼液（116人）、使用0.01%阿托品滴眼液（122人）、使用安慰剂（0.9%氯化钠，115人）
 
 **用药方案：**
 
@@ -5561,7 +5570,7 @@ PUA好上手
 
 **结论：**
 
-对于49岁尚未近视的儿童，每晚使用0.05%阿托品滴眼液，持续用药2年，该方案可以显著推迟近视发病，大约有1/4儿童可以因此获益。而**0.01%阿托品滴眼液无法推迟49岁儿童近视的发生**。
+对于4-9岁尚未近视的儿童，每晚使用0.05%阿托品滴眼液，持续用药2年，该方案可以显著推迟近视发病，大约有1/4儿童可以因此获益。而**0.01%阿托品滴眼液无法推迟4-9岁儿童近视的发生**。
 
 02
 --
@@ -5572,7 +5581,7 @@ PUA好上手
 
 案例一
 
-2014年4月出生男孩
+2014年4月出生男孩  
 
 家族史：父亲不近视（眼轴<24毫米），母亲近视575度（最长眼轴25.89毫米）
 
@@ -5582,7 +5591,7 @@ PUA好上手
 
 ①长眼轴：>75%同龄男孩；
 
-②79岁出现眼轴发育加速：每季度增幅>0.1毫米，连续两个季度（21年15月、21年58月
+②7-9岁出现眼轴发育加速：每季度增幅>0.1毫米，连续两个季度（21年1-5月、21年5-8月
 
 **2\. 眼轴数据表格**
 
@@ -5592,11 +5601,11 @@ PUA好上手
 
  下图可以看到：
 
-* 在近视基因激活之后，2021年1月8月的眼轴曲线斜率陡；
+* 在近视基因激活之后，2021年1月-8月的眼轴曲线斜率陡；
 
-* 开始双眼0.05%阿托品治疗之后，2021年8月2022年8月的眼轴曲线斜率变得平坦；
+* 开始双眼0.05%阿托品治疗之后，2021年8月-2022年8月的眼轴曲线斜率变得平坦；
 
-* 但0.05%阿托品的疗效无法完全控制住眼轴发育速度，因此在2022年8月2023年4月，眼轴曲线的斜率又变得陡峭。
+* 但0.05%阿托品的疗效无法完全控制住眼轴发育速度，因此在2022年8月-2023年4月，眼轴曲线的斜率又变得陡峭。
 
   目前的治疗计划时，等待孩子的裸眼视力跌至0.7，开始0.05%阿托品联合OK镜治疗。 
 
@@ -5610,7 +5619,7 @@ PUA好上手
 
 案例二
 
-2013年8月出生男孩
+2013年8月出生男孩  
 
 家族史：父亲近视100度（眼轴<24.5毫米），母亲高度近视700度（最长眼轴27.73毫米）
 
@@ -5620,7 +5629,7 @@ PUA好上手
 
 ① 长眼轴：>50%同龄男孩；
 
-② 79岁出现眼轴发育加速：每季度眼轴增幅>0.1毫米，出现在夏季（2021年710月）
+② 7-9岁出现眼轴发育加速：每季度眼轴增幅>0.1毫米，出现在夏季（2021年7-10月）
 
 **2\. 眼轴数据表格**
 
@@ -5630,9 +5639,9 @@ PUA好上手
 
 下图可以看到：
 
-*   2021年710月出现近视基因激活，一个季度的眼轴增幅超过0.1毫米，眼轴曲线陡峭；
+*   2021年7-10月出现近视基因激活，一个季度的眼轴增幅超过0.1毫米，眼轴曲线陡峭；
 
-*   2021年10月2022年1月，双眼0.02%阿托品滴眼液治疗，药效弱，对眼轴发育速度影响弱。
+*   2021年10月-2022年1月，双眼0.02%阿托品滴眼液治疗，药效弱，对眼轴发育速度影响弱。
 
 *   2022年1月，更换为双眼0.05%阿托品滴眼液，眼轴曲线明显变得平坦。
 
@@ -5644,20 +5653,20 @@ PUA好上手
 
 **5\. 小结**
 
-经过15个月的治疗，眼轴只增涨0.2毫米（同龄儿童每年增涨0.20.3毫米）。最后一次复查的裸眼视力：右眼1.2、左眼1.0。家长非常满意。没有明显副作用，孩子否认畏光、眼干、看不清书本小字；不影响生活和学习。
+经过15个月的治疗，眼轴只增涨0.2毫米（同龄儿童每年增涨0.2-0.3毫米）。最后一次复查的裸眼视力：右眼1.2、左眼1.0。家长非常满意。没有明显副作用，孩子否认畏光、眼干、看不清书本小字；不影响生活和学习。
 
 03
 --
 
 不要轻视近视前期！
 
-近视前期（Premyopic），是早期干预的关键时期。这时，裸眼视力没有下跌，散瞳验光也没有出现近视度数，**仅仅表现为眼轴发育加速**（每年眼轴增幅>0.4毫米）。如果不测量眼轴，家长误以为孩子没近视，而此时已经激活的近视基因会驱使着眼轴不断疯涨。
+近视前期（Pre-myopic），是早期干预的关键时期。这时，裸眼视力没有下跌，散瞳验光也没有出现近视度数，**仅仅表现为眼轴发育加速**（每年眼轴增幅>0.4毫米）。如果不测量眼轴，家长误以为孩子没近视，而此时已经激活的近视基因会驱使着眼轴不断疯涨。
 
 近视前期的不干预案例
 
-2017年2月出生男孩，有高度近视家族史。
+2017年2月出生男孩，有高度近视家族史。  
 
-在5岁2月龄出现眼轴发育加速，家长没想好阿托品治疗。最近一次复查，短短6个月（2022年9月2023年3月）眼轴疯涨0.7毫米（同龄儿童每年增涨0.20.3毫米），裸眼视力仍为1.2。我和家长都很郁闷。
+在5岁2月龄出现眼轴发育加速，家长没想好阿托品治疗。最近一次复查，短短6个月（2022年9月-2023年3月）眼轴疯涨0.7毫米（同龄儿童每年增涨0.2-0.3毫米），裸眼视力仍为1.2。我和家长都很郁闷。
 
  ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4AVK2NOZPRZOc878w5nhMUdHur9r3h9j1fBI6mAredDzO6YLic1tSH8mwPswfBur16OzAiat8ffYicvw/640?wx_fmt=png)
 
@@ -5665,12 +5674,13 @@ PUA好上手
 
 参考文献：
 
-1\. Efficacy and Safety of 8 Atropine Concentrations for Myopia Control in Children: A Network MetaAnalysis. Ophthalmology. 2022 Mar;129(3):322333.
+1\. Efficacy and Safety of 8 Atropine Concentrations for Myopia Control in Children: A Network Meta-Analysis. Ophthalmology. 2022 Mar;129(3):322-333.
 
-2\. Effect of LowConcentration Atropine Eyedrops vs Placebo on Myopia Incidence in Children: The LAMP2 Randomized Clinical Trial. JAMA. 2023 Feb 14;329(6):472481.
+2\. Effect of Low-Concentration Atropine Eyedrops vs Placebo on Myopia Incidence in Children: The LAMP2 Randomized Clinical Trial. JAMA. 2023 Feb 14;329(6):472-481.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5685,7 +5695,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 那个糟老头子
 ======
@@ -5698,7 +5707,7 @@ PUA好上手
 
 我姐的公公，快把儿子们气疯了。
 
-75岁的老爷爷，鳏夫，把前妻和前女友都熬过世了，**他老而弥坚，一个人生活在富裕的社会主义新农村**。
+75岁的老爷爷，鳏夫，把前妻和前女友都熬过世了，**他老而弥坚，一个人生活在富裕的社会主义新农村**。  
 
 囤物癖
 
@@ -5710,11 +5719,11 @@ PUA好上手
 
 每周老头儿骑着电动自行车，骑行半小时，找到山里的泉水眼儿，自己装几桶泉水，带回家。
 
-骑行技术很烂。几年前，老头儿自己撞大树上了，头破血流，住院花了2万多。我姐夫付的账单，因为电动车是姐夫买的，他爹逼他买的。
+骑行技术很烂。几年前，老头儿自己撞大树上了，头破血流，住院花了2万多。我姐夫付的账单，因为电动车是姐夫买的，他爹逼他买的。  
 
 嘴硬
 
-二儿子批评老头矫情，村里自来水能有什么问题，他走南闯北几十年了，喝的自来水都这个味道。
+二儿子批评老头矫情，村里自来水能有什么问题，他走南闯北几十年了，喝的自来水都这个味道。  
 
 老头说：我活了70多年了，你懂还是我懂？！
 
@@ -5726,6 +5735,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5740,7 +5750,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 不学皮肤科的理由
 ========
@@ -5771,6 +5780,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5785,7 +5795,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|8岁以前近视的儿童，OK镜与阿托品联合治疗
 ==========================
@@ -5798,7 +5807,7 @@ PUA好上手
 
 儿童近视控制，成功案例分析：8岁之前就近视的儿童，勇敢选择OK镜联合阿托品滴眼液治疗，安全有效！
 
-女孩，2014年3月出生：
+女孩，2014年3月出生：  
 
 
 01
@@ -5824,7 +5833,7 @@ PUA好上手
 
 近视控制效果
 
-2022年1月—2023年1月，眼轴增幅：右眼0.17毫米、左眼0.15毫米。眼轴发育速度降回到同龄不近视儿童的水平（每年眼轴增幅0.20.3毫米）。由于夜间戴OK镜，白天裸眼视力1.0，生活质量很高。
+2022年1月—2023年1月，眼轴增幅：右眼0.17毫米、左眼0.15毫米。眼轴发育速度降回到同龄不近视儿童的水平（每年眼轴增幅0.2-0.3毫米）。由于夜间戴OK镜，白天裸眼视力1.0，生活质量很高。
 
 这个女孩的妈妈是非常认真、负责任的。她在21年2月联系到我（图1），**勇敢接受孩子会近视的现实，定期给孩子测眼轴、自己做眼轴数据表格（图2），积极接受医生的建议。**现在的结果，我和孩子妈妈都很满意。
 
@@ -5834,6 +5843,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5848,7 +5858,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分享|2013年10月出生男孩，左眼眼轴2年增涨0.1毫米
 ===============================
@@ -5873,6 +5882,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5887,7 +5897,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 眼科医生的算命技能
 =========
@@ -5900,8 +5909,8 @@ PUA好上手
 
 我的两大算命技能：
 
-**1\. 看儿童眼轴，预测近视的发病年龄。
-       
+**1\. 看儿童眼轴，预测近视的发病年龄。  
+         
 2\. 看儿童眼睛，推测孩子的性格。**
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4Bf309g7GJaiaDD5R1w4uNrE7LbKWyH7EYKbI37R6SrAjTD3wt16AXf2mkDxqhXb1HGhqeibjaib0WHg/640?wx_fmt=png)
@@ -5916,6 +5925,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5930,7 +5940,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 所谓学霸，犯贱基因的载体
 ============
@@ -5949,10 +5958,10 @@ PUA好上手
 
 上初中就早上4点起床背诵英文、古文，甘之如饴。现在年近40岁，春季的时间表是
 
-6：00准时醒，抱着电脑办公；
-7：30洗澡、吹头发、吃早餐；
-8：30出门
-20：30到家，办公、学习；
+6：00准时醒，抱着电脑办公；  
+7：30洗澡、吹头发、吃早餐；  
+8：30出门  
+20：30到家，办公、学习；  
 22：30睡觉
 
 无法睡懒觉，早上自然醒；爱学习，逼自己学习；不打网游，不看电视，不去酒吧……听起来，是不是中国家长喜欢和想要的好宝宝？
@@ -5963,6 +5972,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -5977,7 +5987,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分享|2012年02月出生男孩，眼轴3年仅增涨0.3毫米
 ==============================
@@ -5992,19 +6001,19 @@ PUA好上手
 
 2012年02月出生男孩：
 
-**【近视控制方案】**
-2020年4月  开始双眼0.02%阿托品滴眼液
+**【近视控制方案】**  
+2020年4月  开始双眼0.02%阿托品滴眼液  
 2020年8月  开始双眼戴OK镜
 
-三年过去了，眼轴3年增涨0.3毫米，非常优秀！同龄儿童每年眼轴增涨0.20.3毫米。
+三年过去了，眼轴3年增涨0.3毫米，非常优秀！同龄儿童每年眼轴增涨0.2-0.3毫米。
 
 图表都是孩子妈妈自己做的。从7岁开始非常认真地配合戴OK镜，神仙孩子。现在眼睛明亮有神，不突眼，真好！
 
-
+  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4Bf309g7GJaiaDD5R1w4uNrEIufdLhPR6XDRqYZU1iaPm9UjQia3uONfPpia8I0BsCLcukORCOiaOwHIgw/640?wx_fmt=png)
 
-
+  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4Bf309g7GJaiaDD5R1w4uNrEJaU4vSJu7Zs81MyXiamzm9EJPgTAQqiafzI2NsuMmeYciajFHGrMBibWLQ/640?wx_fmt=png)
 
@@ -6012,6 +6021,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6026,7 +6036,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|7岁女孩左眼350右眼400，能配角塑？
 =========================
@@ -6052,22 +6061,22 @@ PUA好上手
 
 孩子眼睛的状况
 
-**1\. 高度近视基因推动的眼轴疯涨：**
+**1\. 高度近视基因推动的眼轴疯涨：**  
 
-7岁女孩，不近视的眼轴大概在22.3922.71毫米。您孩子的眼轴长度提示她携带高度近视基因，推测近视基因在4岁左右就激活了。如果有其它同胞，3岁就要开始测量眼轴。父母也需要测量眼轴，很可能有一方的眼轴突破27毫米。
+7岁女孩，不近视的眼轴大概在22.39-22.71毫米。您孩子的眼轴长度提示她携带高度近视基因，推测近视基因在4岁左右就激活了。如果有其它同胞，3岁就要开始测量眼轴。父母也需要测量眼轴，很可能有一方的眼轴突破27毫米。
 
-根据您提供的数据，孩子目前的眼轴发育速度是0.6毫米/年，而且这是被0.01%阿托品滴眼液压制之后的速度，很可能原来的眼轴发育速度是0.8毫米/年。而我们要求孩子的眼轴发育速度降至不近视的同龄儿童水平，也就是每年眼轴增幅保持在0.20.3毫米。
+根据您提供的数据，孩子目前的眼轴发育速度是0.6毫米/年，而且这是被0.01%阿托品滴眼液压制之后的速度，很可能原来的眼轴发育速度是0.8毫米/年。而我们要求孩子的眼轴发育速度降至不近视的同龄儿童水平，也就是每年眼轴增幅保持在0.2-0.3毫米。
 
-**2\. 单一的低浓度阿托品治疗，压制不住高度近视儿童的眼轴疯涨**
+**2\. 单一的低浓度阿托品治疗，压制不住高度近视儿童的眼轴疯涨**  
 
-根据目前的循证医学研究，低浓度阿托品滴眼液可以让眼轴每年减少增长0.250.35毫米\[1,2\]。因此您的孩子必须接受角膜塑形治疗，后者还可以让孩子的眼轴每年减少增长0.20.3毫米\[1,2\]。
+根据目前的循证医学研究，低浓度阿托品滴眼液可以让眼轴每年减少增长0.25-0.35毫米\[1,2\]。因此您的孩子必须接受角膜塑形治疗，后者还可以让孩子的眼轴每年减少增长0.2-0.3毫米\[1,2\]。
 
 02
 --
 
 给您的建议
 
-**1\. 找私立眼科诊所或医院给孩子配角膜塑形镜：**
+**1\. 找私立眼科诊所或医院给孩子配角膜塑形镜：**  
 
 为什么公立医院不给<8岁近视儿童配角膜塑形镜？大陆政策问题。《中国角膜塑形用硬性透气接触镜验配管理专家共识(2016年)》：**年龄过小(<8岁)，由医师酌情考虑并增加对安全的监控，且需有家长理解和签署知情同意书。**另外，给低龄儿童验配角膜塑形镜非常耗时（至少3小时），对门诊量很大的公立医院，是个负担。但是这并不意味着低龄高度近视儿童就不需要控制近视了。
 
@@ -6086,7 +6095,7 @@ PUA好上手
 
 坚持缴社保
 
-**近视的本质是什么？**
+**近视的本质是什么？**  
 
 携带近视基因的儿童，眼球在童年出现生长发育失控，像吹气球一样，眼球前后直径迅速拉长，直到18岁时发育停止，眼球变为橄榄球形状。而不携带近视基因的儿童，例如白人，眼球在童年的生长发育十分缓慢，每年的眼轴增幅在0.2毫米以内，成年的眼球是足球形状。 
 
@@ -6098,7 +6107,7 @@ PUA好上手
 
 参考文献：
 
-1\. Ophthalmology. 2016 Apr;123(4):697708. 
+1\. Ophthalmology. 2016 Apr;123(4):697-708. 
 
 2\. Cochrane Database Syst Rev. 2020 Jan 13;1:CD004916.
 
@@ -6106,6 +6115,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6120,14 +6130,13 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 能者多劳，鸡者自鸡
 =========
 
 原文地址：[能者多劳，鸡者自鸡](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449669&idx=2&sn=e4a92b7710609e9b9b78fb1ba318ffd2&chksm=e099ced24654605fb00085c78ec43ed429ebbf020aa0682636b3ef1e6c927a9c2afd83cf96ba&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -6147,9 +6156,9 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4BWeLFHVzzLj6yIVFLLpicm2d76ZcB7McOhNC4W7dh3No9hlibsUHd28eL986LQuz3g5fFKQ1nzHJfg/640?wx_fmt=gif)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -6168,7 +6177,7 @@ PUA好上手
 
 原文地址：[孩子近视，父母的眼轴也需要测量](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449670&idx=1&sn=ce16bc4cd2fd043cfdaa6a9fc9bfe723&chksm=4039d7c8c6d46a56d07e86a6ce2b111e50b317e615814cbf70c69a92b2a6b9ce02a5e4d15667&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
@@ -6184,13 +6193,13 @@ PUA好上手
 
 高度近视的确容易遗传
 
-2020年发布的一篇循证医学研究\[1\]，总结了中国22个临床研究、总计192,569名儿童。该研究发现，2013年之后，中国1618岁儿童的近视率高达84.8%，高度近视率19.3%！你们看，**每5个孩子就有1个是高度近视！**说明我们中国人有高度近视基因的不在少数。
+2020年发布的一篇循证医学研究\[1\]，总结了中国22个临床研究、总计192,569名儿童。该研究发现，2013年之后，中国16-18岁儿童的近视率高达84.8%，高度近视率19.3%！你们看，**每5个孩子就有1个是高度近视！**说明我们中国人有高度近视基因的不在少数。
 
 03
 
 父母有前车之鉴，孩子严格控制近视
 
-建议长眼轴儿童的父母都去测量眼轴。如果发现父母的眼轴超过26毫米，无论多少度近视，一律诊断高度近视。
+建议长眼轴儿童的父母都去测量眼轴。如果发现父母的眼轴超过26毫米，无论多少度近视，一律诊断高度近视。  
 
 高度近视的父母，需要**每年筛查高度近视的并发症**：视网膜裂孔、视网膜脱离、青光眼、黄斑脉络膜新生血管等。这些并发症通常在40岁以后发病。不要盲目自信，觉得人品好，就理应健康长寿的。
 
@@ -6202,10 +6211,10 @@ PUA好上手
 
 很遗憾的案例
 
-有一位孩子妈妈联系我，说之前孩子爸爸不愿意测量眼轴，发生视网膜脱离了。真的太遗憾了。
+有一位孩子妈妈联系我，说之前孩子爸爸不愿意测量眼轴，发生视网膜脱离了。真的太遗憾了。  
 
 
-如果他早发现视网膜裂孔，只需10002000元，做视网膜激光就可以避免裂孔进展为视网膜脱离。而一旦发生视网膜脱离，手术费用3万起，请假至少23周。
+如果他早发现视网膜裂孔，只需1000-2000元，做视网膜激光就可以避免裂孔进展为视网膜脱离。而一旦发生视网膜脱离，手术费用3万起，请假至少2-3周。
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4A23eEVEVtS4RzmEmEoLX4CC4GYR9MWe1urC9OUt53YBLemnomJf5410z4IVG5tkWGtfZFTM4Dw4g/640?wx_fmt=jpeg)
 
@@ -6213,10 +6222,11 @@ PUA好上手
 
 眼轴比同龄儿童长0.5毫米，说明很可能携带了高度近视基因：[大陆儿童的眼轴是多少？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650426131&idx=2&sn=93d577c5a12392eeb24c7ae56cd5e3b6&chksm=87d598e8b0a211fe72fa876321edb463a2667cd3aad97665f3bde3a5139f6ce30314a9404236&scene=21#wechat_redirect)
 
-参考文献：1\. Retina. 2020 Mar;40(3):399411.
+参考文献：1\. Retina. 2020 Mar;40(3):399-411.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6231,14 +6241,13 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 牌坊精的老太太
 =======
 
 原文地址：[牌坊精的老太太](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449670&idx=2&sn=b6885673891937d250c3cfec46219753&chksm=ed9487984654605ca81d926ca8d4f71104bd19b63c94f62f6ce5d17e9726b1e720993e641b48&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -6255,7 +6264,7 @@ PUA好上手
 
 姥爷的房子也不想分给我妈，我妈被迫多次向二舅保证：放弃继承。姥爷还是不放心，亲自给我妈拨打视频，叫我妈大名，要求她重复放弃房产继承的话（录屏取证）。
 
-被娘家羞辱成这样，我妈气够呛，三个月体重暴跌20斤，瘦成干巴巴的老太太。苍老了很多，跟我爹一起出门，看起来更像我爹的妈。
+被娘家羞辱成这样，我妈气够呛，三个月体重暴跌20斤，瘦成干巴巴的老太太。苍老了很多，跟我爹一起出门，看起来更像我爹的妈。  
 
 
 02
@@ -6271,16 +6280,16 @@ PUA好上手
 
 有些父母，喜欢自找苦吃。好像他们生活简朴、省吃俭用，都是为了子女，同时用这种“父母为了你受苦”的道德牌坊来压制子女。**我的价值观就是：**
 
-☞父母吃苦，不是子女的错，是因为父母没本事、挣不到钱。养孩子就是贵，穷还固执地生孩子，养不起，打脸活该。
+☞父母吃苦，不是子女的错，是因为父母没本事、挣不到钱。养孩子就是贵，穷还固执地生孩子，养不起，打脸活该。  
 ☞同胞都是熟悉的陌生人，不应该有金钱往来，借钱终将撕破脸。
 
 等我有时间的，回姥姥家揪着二舅妈头发问问她的脸呢；考虑到二舅秃头了，我得揪他耳朵，问问他是不是被狗吃过；劝劝姥爷，人之将死，其言要善。妈的，一群贱人。
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4Bf309g7GJaiaDD5R1w4uNrEqY9qGLD9uhS6sJF2ibhXj9MDz8oeFFEbafGuic6gWhaqcny9T9ctm3ag/640?wx_fmt=gif)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -6299,7 +6308,7 @@ PUA好上手
 
 原文地址：[二胎是父母和头生子女的情感第三者](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449671&idx=2&sn=05b0d325566a300b1301f4af2d024898&chksm=30b4dec16270605d99450c8dc985d7dd2eb77669ae404457f0943838f239e11c567b4c1b318f&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -6311,7 +6320,7 @@ PUA好上手
 
 小猫的到来，让大猫感到了危机感，嫉妒得发疯。每次发饭，大猫都用爪子摁住小猫的头，不让小猫吃饭；然后大猫把小猫的幼年猫粮都吃光，即使那是大猫曾经最讨厌吃的牌子；最后大猫再把自己的成年猫粮都吃光。
 
-于是，大猫，那只漂亮的金渐层，把自己吃吃吃，吃成橘猫，吃成圆滚滚的金锣火腿肠。
+于是，大猫，那只漂亮的金渐层，把自己吃吃吃，吃成橘猫，吃成圆滚滚的金锣火腿肠。  
 
 那天顿悟了。**原来我不是贪吃，而是误以为食物是爱，替代父母的爱。**
 
@@ -6319,7 +6328,9 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_gif/ibxAaMO0XO4Bf309g7GJaiaDD5R1w4uNrEhtbGd6YpkQPoG16azXWX6q6ic57w23icyCXxicPoHdXXlCx3MUuotTcug/640?wx_fmt=gif)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
+
+  
 
 
 
@@ -6334,31 +6345,29 @@ PUA好上手
 
 
 
-
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 接受孩子会近视的现实，积极防控，避免高度近视！
 =======================
 
 原文地址：[接受孩子会近视的现实，积极防控，避免高度近视！](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449671&idx=1&sn=112a4cc333e683fd43ad5536a20eb419&chksm=9c188699e6f4605d66a9ee6878b36a38c185111c6a2b2bf84493e9bea8a031400bb16955e8bd&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
 未来全球一半人口患近视
 
-预测到2050年（Ophthalmology. 2016），**全球人口49.8%是近视人群**，共有47.58亿，其中9.38亿是500度以上的高度近视，占总人口9.8%。
+预测到2050年（Ophthalmology. 2016），**全球人口49.8%是近视人群**，共有47.58亿，其中9.38亿是500度以上的高度近视，占总人口9.8%。  
 
 近视=东亚短板
 
-可以理解为近视是东亚人群特有的基因不完美。
+可以理解为近视是东亚人群特有的基因不完美。  
 
 东亚近视患病率全球最高，**高达79.6%**，而白人近视率只有22.8%（Br J Ophthalmol. 2016）。韩国首尔96.5%、新加坡91.7%、中国台湾87.6%、中国香港86.4%。
 
 中国孩子很难逃脱近视
 
-在2013年以后(Retina. 2019)，中国1618岁儿童近视率已经高达84.8%，高度近视率19.3%。
+在2013年以后(Retina. 2019)，中国16-18岁儿童近视率已经高达84.8%，高度近视率19.3%。  
 
 想要孩子不近视，先拼基因，如果父母**眼球长度（眼轴）都****超过25毫米，那么就不要苛求孩子不近视了**。
 
@@ -6368,6 +6377,7 @@ PUA好上手
 
 近视是致盲的慢性眼病，而且很贵，眼科疾病的账单，都是四个0起跳的，非常贵。近视是童年发病，但影响中晚年的视力。**近视必须从儿童抓起，把高度近视的人口降下来！**
 
+  
 
 
 
@@ -6382,14 +6392,13 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 女孩婚前买的房， 它是你后退的窝
 ================
 
 原文地址：[女孩婚前买的房， 它是你后退的窝](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449672&idx=2&sn=088704cc1c33fd76a82c84bd1bf0f017&chksm=1d999f8feaf8685ae632767e433c50ec0ee4c081f679171eed57195c11eac8c0a7d311f5fc85&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -6411,6 +6420,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6425,14 +6435,13 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 近视人群如何预防视网膜脱落？
 ==============
 
 原文地址：[近视人群如何预防视网膜脱落？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449672&idx=1&sn=41ab539c14235f90d5d71acb0529339f&chksm=1490d6c6c6d46052dfc94a601aa3cc39872596d75ccd185dfc593611ddfe809bf08eb1f49528&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
@@ -6442,9 +6451,9 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4BtibPDXConbqXpSgbqNQmlrGfbta66IcUWXmfXQcgDhmzp6KHuLxRibyIWJcP1MHxSfibGWH7OKIbYg/640?wx_fmt=jpeg)
 
-孔源性视网膜脱离是近视的常见并发症之一，每年的发病率是万分之一，发病高峰期在4059岁，**高度近视人群的患病风险更高**\[1\]。
+孔源性视网膜脱离是近视的常见并发症之一，每年的发病率是万分之一，发病高峰期在40-59岁，**高度近视人群的患病风险更高**\[1\]。
 
-95%以上患者通过手术可以成功治愈，但可能手术不止一次，以及术后视觉质量不再精致。根据最新的临床研究报道，术后有46.58%患者**长期存在视物变形**\[2\]，而且患上**抑郁症比例更高**\[3\]。
+95%以上患者通过手术可以成功治愈，但可能手术不止一次，以及术后视觉质量不再精致。根据最新的临床研究报道，术后有46.58%患者**长期存在视物变形**\[2\]，而且患上**抑郁症比例更高**\[3\]。  
 
 **孔源性视网膜脱离的高危因素包括：**
 --------------------
@@ -6459,13 +6468,13 @@ PUA好上手
 
 *   周边视网膜出现视网膜变性区，包括格子样变性区（所有近视人群都要每年做散瞳检查，由眼科医生仔细检查赤道部视网膜）；
 
-美国眼科医生有警告说\[4\]：10%人群有视网膜裂孔，只是没有症状，只有很小一部分进展为视网膜脱离。那么近视人群该怎么做来预防视网膜脱离？
+美国眼科医生有警告说\[4\]：10%人群有视网膜裂孔，只是没有症状，只有很小一部分进展为视网膜脱离。那么近视人群该怎么做来预防视网膜脱离？  
 
 01
 
 每年散瞳检查周边视网膜
 
-眼球不是一个充水的气球，它的内部有一个大果冻来填充和支撑眼球内部的零部件。玻璃体就是果冻，与视网膜的接触面积很大，确保视网膜在人体运动时不会震荡。毕竟视网膜是9层神经细胞织成的精密网，还有穿插的密集血管网，精密娇贵，眼球变形时（例如拳击眼球）就会导致视网膜脱离。
+眼球不是一个充水的气球，它的内部有一个大果冻来填充和支撑眼球内部的零部件。玻璃体就是果冻，与视网膜的接触面积很大，确保视网膜在人体运动时不会震荡。毕竟视网膜是9层神经细胞织成的精密网，还有穿插的密集血管网，精密娇贵，眼球变形时（例如拳击眼球）就会导致视网膜脱离。  
 
 玻璃体和视网膜粘附最紧的解剖部位包括：玻璃体基底部（周边视网膜）、视网膜血管走行处、黄斑。这些粘附的部位也是玻璃体对视网膜产生拉力最大的地方，也容易因为玻璃体牵拉而出现视网膜裂孔，渐渐地，玻璃体对视网膜裂孔的边缘产生向心性拉力，液化的玻璃体以及房水（眼球内部循环的液体）进入裂孔和视网膜下方，出现视网膜脱离；或者玻璃体牵拉血管，撕裂视网膜表面的血管，引起玻璃体积雪。
 
@@ -6475,7 +6484,7 @@ PUA好上手
 
 周边视网膜发现了格子样变性
 
-这是玻璃体牵拉对视网膜引起的最早期病变。68%人群有视网膜格子样变性，45%患者双眼都有，所以另一只眼睛也要保持警惕。只有不到1%的格子样变性患者会发展为视网膜脱离。所以不要怕，从未发生过视网膜脱离、有视网膜圆孔的格子样变性并不一定会发生视网膜脱离。
+这是玻璃体牵拉对视网膜引起的最早期病变。6-8%人群有视网膜格子样变性，45%患者双眼都有，所以另一只眼睛也要保持警惕。只有不到1%的格子样变性患者会发展为视网膜脱离。所以不要怕，从未发生过视网膜脱离、有视网膜圆孔的格子样变性并不一定会发生视网膜脱离。
 
 安静的格子样变性，随着逐渐的视网膜萎缩，35%年轻的近视人群会出现视网膜裂孔，2%出现极小范围的视网膜脱离，但是**不危险，进展缓慢**。一般来说，在格子样病变内存在视网膜圆孔，以及有极少量的视网膜下液，这些不需要治疗的，需要定期看医生，评估小范围的视网膜脱离有没有进展，进展了才需要激光治疗。
 
@@ -6483,13 +6492,13 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4BtibPDXConbqXpSgbqNQmlr0fHJh9pyCMaGHwDFh4hYlHPFwj67J0YgsFBBeia7ibLH9yf5rA7HEjLA/640?wx_fmt=jpeg)
 
-**做过激光治疗的视网膜格子样变形区（123点钟位）**
+**做过激光治疗的视网膜格子样变形区（12-3点钟位）**
 
 03
 
 周边视网膜发现了视网膜裂孔，但是没有症状
 
-无症状的裂孔通常是有盖的裂孔和萎缩性圆孔。裂孔的边缘不存在玻璃体牵拉力，因此不太可能发生视网膜脱离。尚无回顾性或随机临床试验支持这种裂孔需要激光治疗。所以，不需要做激光治疗，每年复查一次就好。
+无症状的裂孔通常是有盖的裂孔和萎缩性圆孔。裂孔的边缘不存在玻璃体牵拉力，因此不太可能发生视网膜脱离。尚无回顾性或随机临床试验支持这种裂孔需要激光治疗。所以，不需要做激光治疗，每年复查一次就好。  
 
 还有，发生格子样变性的眼睛，如果出现**马蹄形裂孔**（看图），视网膜脱离常常会发生，需要做激光治疗。
 
@@ -6519,16 +6528,17 @@ PUA好上手
 
 参考文献：
 
-1.ZouH, Zhang X, Xu X, He Z: **\[Epidemiologysurvey of rhegmatogenous retinal detachment in Beijing districts, Shanghai\]**._\[Zhonghua yan ke za zhi\] Chinese journalof ophthalmology_ 2002, **38**(10):580583.
+1.ZouH, Zhang X, Xu X, He Z: **\[Epidemiologysurvey of rhegmatogenous retinal detachment in Beijing districts, Shanghai\]**._\[Zhonghua yan ke za zhi\] Chinese journalof ophthalmology_ 2002, **38**(10):580-583.
 
-2.Zhou C, Lin Q, Chen F: **Prevalence and predictors of metamorphopsiaafter successful rhegmatogenous retinal detachment surgery: a crosssectional,comparative study**. _The Britishjournal of ophthalmology_ 2017, **101**(6):725729.
+2.Zhou C, Lin Q, Chen F: **Prevalence and predictors of metamorphopsiaafter successful rhegmatogenous retinal detachment surgery: a cross-sectional,comparative study**. _The Britishjournal of ophthalmology_ 2017, **101**(6):725-729.
 
-3.Du Y, Mo XH, Li XL, Zeng J, Luo W,Huang ML: **Visionrelated quality of lifeand depression in rhegmatogenous retinal detachment patients**. _Medicine_ 2019, **98**(4):e14225.
+3.Du Y, Mo XH, Li XL, Zeng J, Luo W,Huang ML: **Vision-related quality of lifeand depression in rhegmatogenous retinal detachment patients**. _Medicine_ 2019, **98**(4):e14225.
 
 4.Ruwan A. Silva, Mark S. Blumenkranz. Prophylaxis for Retinal Detachments.American Academy of Ophthalmology.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6543,7 +6553,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 为什么相爱还会分手？
 ==========
@@ -6556,7 +6565,7 @@ PUA好上手
 
 为什么相爱还会分手？价值观不同。     
 
-我个人觉得，**女孩至少要谈23次恋爱，再考虑结婚**。
+我个人觉得，**女孩至少要谈2-3次恋爱，再考虑结婚**。
 
 第一段是初恋。在青春期荷尔蒙蓬勃分泌的时候，莫名其妙爱上一个撞进你世界的少年。初恋的理由五花八门，可能是他冲你笑，可能是他球鞋白，可能是他侧脸帅……因为并不了解这个人，初高中也并不适合恋爱，导致初恋往往有始无终。
 
@@ -6570,6 +6579,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6584,7 +6594,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 什么样的孩子，可以通过阳光预防或推迟近视的发病？
 ========================
@@ -6597,7 +6606,7 @@ PUA好上手
 
 **3月龄——7岁的宝宝**，坚持每天2小时的户外玩耍，可以预防或推迟近视的发病！
 
-循证医学研究\[13\]证实，每天户外玩耍可以推迟或预防儿童近视的早发。关键是每天2小时阳光\[1\]。因为，阳光会刺激视网膜分泌多巴胺，多巴胺可以让携带近视基因的眼球发育变慢，从而推迟或预防近视\[4\]。
+循证医学研究\[1-3\]证实，每天户外玩耍可以推迟或预防儿童近视的早发。关键是每天2小时阳光\[1\]。因为，阳光会刺激视网膜分泌多巴胺，多巴胺可以让携带近视基因的眼球发育变慢，从而推迟或预防近视\[4\]。
 
 01
 --
@@ -6608,22 +6617,22 @@ PUA好上手
 
 视网膜的多巴胺能无长突细胞（Dopaminergic amacrine cells ，DACs）是分泌多巴胺的主要神经元，它们的分泌活动受昼夜节律和光的影响。光可以影响DACs的数量和多巴胺产量，这就是为什么阳光刺激视网膜产生多巴胺，达到预防近视的效果。另外，决定瞳孔对光反应和感知蓝光的光敏性视网膜神经节细胞（intrinsically photosensitive retinal ganglion cells，ipRGC）也可以影响多巴胺的分泌。 
 
-不需要中午暴晒儿童，**早上710点或下午35点的温和阳光即可。**
+不需要中午暴晒儿童，**早上7-10点或下午3-5点的温和阳光即可。**
 
 02
 --
 
 阳光只对尚未近视的儿童有效
 
-2020年发布的循证医学研究\[5\]，总结了中国22个临床研究、总计192,569名儿童。该研究发现，2013年之后，中国1618岁儿童的近视率高达84.8%，高度近视率19.3%；预计2050年，319岁中国儿童近视率84%。因此对于绝大部分中国儿童来说，特别是父母近视的儿童，近视几乎不可避免。
+2020年发布的循证医学研究\[5\]，总结了中国22个临床研究、总计192,569名儿童。该研究发现，2013年之后，中国16-18岁儿童的近视率高达84.8%，高度近视率19.3%；预计2050年，3-19岁中国儿童近视率84%。因此对于绝大部分中国儿童来说，特别是父母近视的儿童，近视几乎不可避免。
 
-**眼轴可以预测近视的发病年龄！**
+**眼轴可以预测近视的发病年龄！**  
 
-☞在近视基因未激活时，儿童每年的眼轴增幅在0.20.3毫米；
-☞如果每年的眼轴增幅超过0.4毫米，提示近视基因激活，可以开始低浓度阿托品治疗。
-☞阳光每年只能让眼轴少涨0.08毫米\[1\]，减少远视储备下滑30度\[23\]。
+☞在近视基因未激活时，儿童每年的眼轴增幅在0.2-0.3毫米；  
+☞如果每年的眼轴增幅超过0.4毫米，提示近视基因激活，可以开始低浓度阿托品治疗。  
+☞阳光每年只能让眼轴少涨0.08毫米\[1\]，减少远视储备下滑30度\[2-3\]。
 
-因此，**阳光只能推迟近视的发病年龄，无法避免近视。**而且对于已经近视的儿童，阳光失去保护作用\[2\]，即使坚持所谓的大户外，近视度数和眼轴依然增涨。
+因此，**阳光只能推迟近视的发病年龄，无法避免近视。**而且对于已经近视的儿童，阳光失去保护作用\[2\]，即使坚持所谓的大户外，近视度数和眼轴依然增涨。  
 
 03
 --
@@ -6632,24 +6641,25 @@ PUA好上手
 
 **3岁开始测量眼轴！**
 
-如果孩子每年的眼轴增幅不超过0.3毫米，尽量坚持每天2小时阳光。如果在工作日的阳光时间不足2小时，周末补足，每周累计1014小时。
+如果孩子每年的眼轴增幅不超过0.3毫米，尽量坚持每天2小时阳光。如果在工作日的阳光时间不足2小时，周末补足，每周累计10-14小时。
 
-孩子近视以后，开始投资OK镜和/或低浓度阿托品滴眼液。如果父母是高度近视（眼轴超过26毫米），准备好15万给孩子控制近视。
+孩子近视以后，开始投资OK镜和/或低浓度阿托品滴眼液。如果父母是高度近视（眼轴超过26毫米），准备好15万给孩子控制近视。  
 
 参考文献：
 
 1\. Int J Environ Res Public Health. 2019 Jul 21;16(14):2595.
 
-2\. Ophthalmic Res. 2020;63(2):97105.
+2\. Ophthalmic Res. 2020;63(2):97-105.
 
-3\. Acta Ophthalmol. 2017 Sep;95(6):551566.
+3\. Acta Ophthalmol. 2017 Sep;95(6):551-566.
 
-4\. Prog Retin Eye Res. 2017 Nov;61:6071.
+4\. Prog Retin Eye Res. 2017 Nov;61:60-71.
 
-5\. Retina. 2020 Mar;40(3):399411.
+5\. Retina. 2020 Mar;40(3):399-411.
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6664,7 +6674,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 一个帮我看破红尘的知识
 ===========
@@ -6704,6 +6713,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6718,7 +6728,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 选择适合自己的老花镜，需要注意这4点
 ==================
@@ -6733,7 +6742,7 @@ PUA好上手
 
 人人都会老花，包括眼科医生，只不过老花的年龄不同。
 
-目前没有针对老花眼的预防和治疗办法，**只能戴老花镜、或者做老视矫正手术**。
+目前没有针对老花眼的预防和治疗办法，**只能戴老花镜、或者做老视矫正手术**。  
 
 在选择老花眼的阅读镜时，我们需要注意：
 
@@ -6741,7 +6750,7 @@ PUA好上手
 
 不要买路边摊的廉价老花镜
 
-除非经济条件受限，否则**不要买路边摊的廉价老花镜**，也**不要共同老花镜**。
+除非经济条件受限，否则**不要买路边摊的廉价老花镜**，也**不要共同老花镜**。  
 
 并不是试戴一下能看清，就买回家了。每个人的**脸宽不一样**，需要的镜框不同；**瞳孔之间的距离也不同**，瞳距宽的人群通常无法适应那些瞳距不明确的廉价老花镜。
 
@@ -6761,7 +6770,7 @@ PUA好上手
 
 至少每2年重新验光、配新的老花镜
 
-因为眼睛内部的睫状肌、晶状体、睫状小带都会**继续衰老**，老花的**度数可****能会增加**。
+因为眼睛内部的睫状肌、晶状体、睫状小带都会**继续衰老**，老花的**度数可****能会增加**。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -6771,6 +6780,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6785,7 +6795,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 90%人终于贫困
 ========
@@ -6818,6 +6827,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6832,7 +6842,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 蜱虫又到了活跃期，野外活动需谨慎
 ================
@@ -6859,6 +6868,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6873,14 +6883,13 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 吃糖会让孩子近视？别被谣言吓着了！
 =================
 
 原文地址：[吃糖会让孩子近视？别被谣言吓着了！](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449741&idx=1&sn=3b3e9b1302216d999c5cdda77fcd1784&chksm=941086d3cedc6017f89d4b91efca11fb087ea8a7c6886072df48519b1add2ea46ab0eb6b565f&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
@@ -6908,9 +6917,9 @@ PUA好上手
 
 **2 ｜ “吃糖吃甜食容易近视”其实是歪曲了眼科鼻祖的假说**
 
-眼科鼻祖、苏格兰眼科医生Stewart DukeElder老先生（1898 1978）在1925年发现：人眼在高血糖时，眼睛的屈光力减小，向近视的方向变化（myopic shift）；而血糖恢复后，眼睛的屈光力增加，向远视的方向变化（hyperopic shift）。因此他提出一个假说：人眼晶状体的屈光力会随着血液的渗透压变化。老爷子对眼科学界的贡献类似于开天辟地的盘古，连续编写了七版的眼科教科书和十五版的系统眼科学。因此，他的假说被徒子徒孙们传播下来，我读医学院时，老师也这么介绍过。**世人的口头传播和朋友圈不懂装懂改编，歪曲了老爷子的理念，把一个“假说”，简化为：吃糖吃甜食容易近视。**这里我会心一笑。
+眼科鼻祖、苏格兰眼科医生Stewart Duke-Elder老先生（1898 -1978）在1925年发现：人眼在高血糖时，眼睛的屈光力减小，向近视的方向变化（myopic shift）；而血糖恢复后，眼睛的屈光力增加，向远视的方向变化（hyperopic shift）。因此他提出一个假说：人眼晶状体的屈光力会随着血液的渗透压变化。老爷子对眼科学界的贡献类似于开天辟地的盘古，连续编写了七版的眼科教科书和十五版的系统眼科学。因此，他的假说被徒子徒孙们传播下来，我读医学院时，老师也这么介绍过。**世人的口头传播和朋友圈不懂装懂改编，歪曲了老爷子的理念，把一个“假说”，简化为：吃糖吃甜食容易近视。**这里我会心一笑。
 
-随着科技进步，我们可以用很多仪器去精密测量眼球内部的显微结构了。于是，世界各地的眼科医生们开始验证DukeElder老先生的假说了：找来糖尿病患者，在高血糖的时候，测量角膜和晶状体的屈光力、形状，测量眼球的长度等；然后降血糖，再重复一遍上述检测步骤。然后呢？根据发表的文章，结论不一，南辕北辙。简而言之就是，我们眼科医生也没有得到定论，也没有达成共识。**医学是严谨的学科，所有的假说必须经过大规模双盲对照临床试验的验证才能称之为定论**，这需要时间。
+随着科技进步，我们可以用很多仪器去精密测量眼球内部的显微结构了。于是，世界各地的眼科医生们开始验证Duke-Elder老先生的假说了：找来糖尿病患者，在高血糖的时候，测量角膜和晶状体的屈光力、形状，测量眼球的长度等；然后降血糖，再重复一遍上述检测步骤。然后呢？根据发表的文章，结论不一，南辕北辙。简而言之就是，我们眼科医生也没有得到定论，也没有达成共识。**医学是严谨的学科，所有的假说必须经过大规模双盲对照临床试验的验证才能称之为定论**，这需要时间。
 
 为大家回顾了近年来发表的临床研究，结果一定会让您十分感慨，没错，医学总是带给我们惊喜。
 
@@ -6946,16 +6955,17 @@ PUA好上手
 
 参考文献：
 
-1\. Acta Ophthalmol. 2009 Mar;87(2):17682.Measuring the refractive properties of the diabetic eye during blurred visionand hyperglycaemia using aberrometry and Scheimpflug imaging.
+1\. Acta Ophthalmol. 2009 Mar;87(2):176-82.Measuring the refractive properties of the diabetic eye during blurred visionand hyperglycaemia using aberrometry and Scheimpflug imaging.
 
-2\. Eur J Ophthalmol. 2006SepOct;16(5):6636. Sweet hyperopia: refractive changes in acutehyperglycemia.
+2\. Eur J Ophthalmol. 2006Sep-Oct;16(5):663-6. Sweet hyperopia: refractive changes in acutehyperglycemia.
 
-3\. Singapore Med J. 2015 Aug;56(8):4504.Myopia in young patients with type 1 diabetes mellitus.
+3\. Singapore Med J. 2015 Aug;56(8):450-4.Myopia in young patients with type 1 diabetes mellitus.
 
-4\. Diabetes Res Clin Pract. 2016Jan;111:19. Myopia and diabetic retinopathy: A systematic review andmetaanalysis.
+4\. Diabetes Res Clin Pract. 2016Jan;111:1-9. Myopia and diabetic retinopathy: A systematic review andmeta-analysis.  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -6970,14 +6980,13 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 精神弑父
 ====
 
 原文地址：[精神弑父](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449741&idx=2&sn=eaae4773770c26979466eba2641b3f7e&chksm=b135df8a6e7c62155b149628dee5fc8a2b1d30adf28b23cb00c9e77989b61ff2c50394e47955&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -6993,6 +7002,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7007,7 +7017,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 为什么劝你不要辞职去创业
 ============
@@ -7024,11 +7033,11 @@ PUA好上手
 
 为啥我不自己投资开诊所？给你们算算账，在北京开一个普通的眼科诊所：
 
-☞装修：30万，带不走的；
-☞设备：国产低配，十几万，进口高配，50万起；
-☞雇佣1个护士、1个视光师，每月开工资2万起；
-☞伺候消防、卫计委这些大爷的成本，咱也不敢说。一不高兴，罚单2万，多的6万8万；
-☞你以为自己是名医、名校博士，离开公立医院，马上人走茶凉。因为大部分中国患者认的是公立医院牌子，记不住医生的名字。
+☞装修：30万，带不走的；  
+☞设备：国产低配，十几万，进口高配，50万起；  
+☞雇佣1个护士、1个视光师，每月开工资2万起；  
+☞伺候消防、卫计委这些大爷的成本，咱也不敢说。一不高兴，罚单2万，多的6万8万；  
+☞你以为自己是名医、名校博士，离开公立医院，马上人走茶凉。因为大部分中国患者认的是公立医院牌子，记不住医生的名字。  
 ☞私立诊所的客户要求高。对待客户不耐心，讲解得不明白，提供不了情绪价值，马上投诉让你走人。别以为私立医院可以混日子。
 
 以我工作的北京诊所为例，1000平，装修费800万（香港设计师），每月房租50万。物业是链家地产，每三年涨一次房租。爱租租，不爱租滚蛋，不跟你客气，豪横极了。你们说，哪个医生有钱开这样的诊所？
@@ -7039,6 +7048,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7053,7 +7063,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|8岁儿童，更换OK镜参数，需要进行反转拍训练吗？
 =============================
@@ -7064,7 +7073,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)
 
-
+  
 
 > **家长提问**
 >
@@ -7084,7 +7093,7 @@ PUA好上手
 
 2\. 每年的眼轴增幅<0.25毫米
 
-孩子目前的眼轴发育速度是0.40.5毫米/年。可以考虑双眼0.02%或0.05%阿托品滴眼液治疗。
+孩子目前的眼轴发育速度是0.4-0.5毫米/年。可以考虑双眼0.02%或0.05%阿托品滴眼液治疗。
 
 **【注意】**
 
@@ -7094,6 +7103,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7108,7 +7118,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 作为大龄女青年，我如何保护自己？
 ================
@@ -7124,7 +7133,7 @@ PUA好上手
 
 -----------------------------
 
-由于他们的大脑不成熟、犯罪成本很低，一时冲动，可能会产生严重后果。与他们打交道，需要嘴巴甜、哄着他们高高兴兴，同时确保环境安全和保持一定的身体距离。
+由于他们的大脑不成熟、犯罪成本很低，一时冲动，可能会产生严重后果。与他们打交道，需要嘴巴甜、哄着他们高高兴兴，同时确保环境安全和保持一定的身体距离。  
 例如，请人来家里修理东西，总是挑选家政阿姨在家的白天。
 
 夜间不去人少的环境
@@ -7139,16 +7148,16 @@ PUA好上手
 
 --------------------
 
-不发生身体接触，保持一米距离；言语中性、客气、不打情骂俏；自嘲自己又老又丑又胖又油腻，赞扬对方家庭幸福、妻子贤惠、女友温柔；不单独与男同事一起出差。
+不发生身体接触，保持一米距离；言语中性、客气、不打情骂俏；自嘲自己又老又丑又胖又油腻，赞扬对方家庭幸福、妻子贤惠、女友温柔；不单独与男同事一起出差。  
 
 随时确保自己安全
 
 
 ------------
 
-进家门，马上锁门；每次路过门口，都检查一下门锁；床头有匕首和胡椒喷雾器，卧室有烟雾警报器、灭火器、防毒面罩、逃生绳。
+进家门，马上锁门；每次路过门口，都检查一下门锁；床头有匕首和胡椒喷雾器，卧室有烟雾警报器、灭火器、防毒面罩、逃生绳。  
 
-走路会不时看周围有无贴近的人（可能是小偷）；在人行道走路，不时回头看，防止外卖小哥从后方骑电动车撞到；过马路，小心对侧左转车辆，以及右侧闯红灯的外卖小哥。
+走路会不时看周围有无贴近的人（可能是小偷）；在人行道走路，不时回头看，防止外卖小哥从后方骑电动车撞到；过马路，小心对侧左转车辆，以及右侧闯红灯的外卖小哥。  
 
 搬去热闹的小区
 
@@ -7178,6 +7187,7 @@ PUA好上手
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7192,7 +7202,6 @@ PUA好上手
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 衰老和HPV感染
 ========
@@ -7229,7 +7238,9 @@ HPV这种病毒有200多型（类似一大家子的堂兄弟很多）。**高危
 
 HPV疫苗接种会产生羊群效应：当接种的人群达到一定比例时，会抑制HPV的传播，也间接地保护了未接种的婴幼儿。也就是说，接种HPV疫苗是造福社会！
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
+
+  
 
 
 
@@ -7244,15 +7255,13 @@ HPV疫苗接种会产生羊群效应：当接种的人群达到一定比例时�
 
 
 
-
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 打呼噜影响眼睛健康，青光眼的风险加倍！
 ===================
 
 原文地址：[打呼噜影响眼睛健康，青光眼的风险加倍！](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449774&idx=1&sn=b986cec0893bd402ee2b4e0b33389bd2&chksm=b13596e0cad86034e6817c73d70227d473fbb229abaa647a7230bac94af4b2489a71f2df7313&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcrLruzFMRP354DK1jr65vR1bYauK0gtgJcia8Id8L6XNCoWrD40l0aRw/640?wx_fmt=png)
 
@@ -7268,6 +7277,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7282,14 +7292,13 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 昂贵的情绪价值
 =======
 
 原文地址：[昂贵的情绪价值](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449774&idx=2&sn=380a4da09296e35d198cf810704787a4&chksm=951197e16e7c6034e641191bd96daf926d513230881079706ede40650099f8b16fefa10a12c5&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -7307,7 +7316,9 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 人到中年，会接受现实：爸妈没那么爱你，戴绿帽子很正常，朋友很少也正常……陪伴一生一世的，只有自己；护你一世安稳的，只有存款。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
+
+  
 
 
 
@@ -7322,8 +7333,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 为什么牙科医生都穿洞洞鞋？
 =============
@@ -7352,6 +7361,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7366,7 +7376,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|使用OK镜后还有散光，会引起视疲劳吗？
 ========================
@@ -7412,12 +7421,13 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 【您孩子的眼轴控制目标】成年眼轴<25.5毫米，每年眼轴增幅<0.2毫米
 
-21年7月22年8月 右眼轴增幅0.16毫米，左眼轴增幅0.1毫米，很好；
+21年7月-22年8月 右眼轴增幅0.16毫米，左眼轴增幅0.1毫米，很好；
 
-22年6月23年4月 这10个月的眼轴增幅，换算到全年，刚好在0.2毫米。所以过关了，不需要焦虑。**不过孩子目前位于79岁眼轴疯涨期，如果今年秋冬眼轴发育加速，或许需要调整阿托品浓度。**
+22年6月-23年4月 这10个月的眼轴增幅，换算到全年，刚好在0.2毫米。所以过关了，不需要焦虑。**不过孩子目前位于7-9岁眼轴疯涨期，如果今年秋冬眼轴发育加速，或许需要调整阿托品浓度。**
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7432,18 +7442,17 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 治疗内耗就是四个字
 =========
 
 原文地址：[治疗内耗就是四个字](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449776&idx=2&sn=8359136509621beb7acc9e432bfe44f7&chksm=f73587efeaf868228c26359f3aa6e7907a1e29708568c53a83974422c1e568d3f0b32caca1de&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
-适时躺平![](https://res.wx.qq.com/t/wx_fed/weemoji/res/v1.3.10/assets/newemoji/2_02.png)
+适时躺平![](https://res.wx.qq.com/t/wx_fed/we-emoji/res/v1.3.10/assets/newemoji/2_02.png)
 
  大家打过游戏吧？无论是电子游戏，还是网游。我们会发现，通过汗水和时间去积攒经验，一次又一次重来，等级始终有天花板。只有砸钱买武器，升级最快，这样的账号也值钱。
 
@@ -7457,11 +7466,11 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 
 
@@ -7495,11 +7504,11 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcuerFyCwQVawkLqD1cpzTgH1adwhS7wibTbp1SwqGGoSPH0Fvyyejiblg/640?wx_fmt=png)大家是否发现戴眼镜的国内儿童越来越多了？你们的直觉没错。
 
-早在2010年以后，中国儿童近视率已经超过50%\[1\]。在中国，经济水平和教育水平发达的省市，儿童近视率越高（图1）。近十年来，中国儿童近视患病率突飞猛涨。根据2020年发布的最新循证医学研究\[2\]，**2013年之后，中国1618岁儿童的近视患病率高达84.8%，高度近视的患病率19.3%**；该研究预计2050年，319岁中国儿童近视患病率84%。
+早在2010年以后，中国儿童近视率已经超过50%\[1\]。在中国，经济水平和教育水平发达的省市，儿童近视率越高（图1）。近十年来，中国儿童近视患病率突飞猛涨。根据2020年发布的最新循证医学研究\[2\]，**2013年之后，中国16-18岁儿童的近视患病率高达84.8%，高度近视的患病率19.3%**；该研究预计2050年，3-19岁中国儿童近视患病率84%。
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4CSM4ASvfB7vNlE8vcqfl8KJibpVUz0YKRiataCgs2jxiaOBQhxfzibiaFotcdbOhAdtJL2zL2I4lNeTRw/640?wx_fmt=jpeg)
 
-**19952014年中国各省市的儿童近视率，颜色越红，近视率越高**
+**1995-2014年中国各省市的儿童近视率，颜色越红，近视率越高**
 
 01
 --
@@ -7525,7 +7534,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 我们口语的大眼睛是指上下眼皮之间暴露的眼球面积多。而高度近视是大眼球（上图），眼球突出，外观看起来像金鱼眼。下图是足球形状的不近视、正视眼。
 
-低等器官变大，无关痛痒，例如大手和大脚。而眼球这个器官，并不是越大越好的。我们通过测量眼球的内直径——眼轴，来间接评估眼球的体积。**只要眼轴超过26毫米，无论近视多少度，都会被诊断高度近视。**我门诊有很多家长是隐匿高度近视。他们最初以为自己近视300度500度，不是高度近视，然而测完眼轴发现超过26毫米。当告知这些家长是高度近视、需要每年筛查高度近视的并发症时，他们纷纷很吃惊，也会理解为什么自己孩子在8岁之前就近视了（高度近视有遗传可能）。
+低等器官变大，无关痛痒，例如大手和大脚。而眼球这个器官，并不是越大越好的。我们通过测量眼球的内直径——眼轴，来间接评估眼球的体积。**只要眼轴超过26毫米，无论近视多少度，都会被诊断高度近视。**我门诊有很多家长是隐匿高度近视。他们最初以为自己近视300度-500度，不是高度近视，然而测完眼轴发现超过26毫米。当告知这些家长是高度近视、需要每年筛查高度近视的并发症时，他们纷纷很吃惊，也会理解为什么自己孩子在8岁之前就近视了（高度近视有遗传可能）。
 
 根据北京高度近视眼研究\[3\]，眼轴越长，晚年出现视力损伤的几率越大（图）。
 
@@ -7542,7 +7551,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 我个人认为，儿童近视控制，家长不需要严格追求近视度数的控制，而是严格控制眼轴。眼球既不要太大，也不要太小。太大的眼球，成年是高度近视，中晚年的视网膜会出问题、损害视力；太小的眼球，成年是高度远视、低度远视、不近视等，在40岁之后更早感受到老花眼、影响近距离阅读（看手机小字吃力），晚年也会面临闭角型青光眼的发作（不能关灯看手机，发病时头疼、眼疼、恶心、呕吐）。
 
-我个人的临床经验是**在儿童眼球发育停止之前，把眼轴控制在2425毫米更好。**
+我个人的临床经验是**在儿童眼球发育停止之前，把眼轴控制在24-25毫米更好。**
 
 *   日本的流行病研究发现\[4\]，眼轴>25毫米，正常眼压性青光眼和开角型青光眼的风险增加；
 
@@ -7553,7 +7562,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 04
 --
 
-案例分析：不需要控制的近视极短眼轴+高曲率
+案例分析：不需要控制的近视-极短眼轴+高曲率
 
 2013年12月出生男孩
 
@@ -7593,21 +7602,19 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 1\. Temporal and spatial characterization of myopia in China. Front Public Health. 2022 Aug 16;10:896926.
 
-2\. PREVALENCE AND TIME TRENDS OF MYOPIA IN CHILDREN AND ADOLESCENTS IN CHINA: A Systemic Review and MetaAnalysis. Retina. 2020 Mar;40(3):399411.
+2\. PREVALENCE AND TIME TRENDS OF MYOPIA IN CHILDREN AND ADOLESCENTS IN CHINA: A Systemic Review and Meta-Analysis. Retina. 2020 Mar;40(3):399-411.
 
-3\. Reduced vision in highly myopic eyes without ocular pathology: the ZOCBHVI high myopia study. Clin Exp Optom. 2018 Jan;101(1):7783.
+3\. Reduced vision in highly myopic eyes without ocular pathology: the ZOC-BHVI high myopia study. Clin Exp Optom. 2018 Jan;101(1):77-83.
 
-4\. Long axial length as risk factor for normal tension glaucoma. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):7817.
+4\. Long axial length as risk factor for normal tension glaucoma. Graefes Arch Clin Exp Ophthalmol. 2009 Jun;247(6):781-7.
 
 5\. The Association between Macular Thickness and Axial Length in Myopic Eyes. Biomed Res Int. 2019 Jul 16;2019:8913582.
 
-6\. Relatively anterior lens position in primary angleclosure glaucoma eyes with long axial length. Indian J Ophthalmol. 2023 May;71(5):19411947.
+6\. Relatively anterior lens position in primary angle-closure glaucoma eyes with long axial length. Indian J Ophthalmol. 2023 May;71(5):1941-1947.
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
-
-
+  
 
 
 
@@ -7619,7 +7626,9 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
+
+
+
 
 关于哺光仪
 =====
@@ -7646,12 +7655,13 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 **▼**
 
-[关于某L疗法，我的回应](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449443&idx=1&sn=c6d23e5d84058d42830c1e1e3229832d&chksm=87d575d8b0a2fccec6ba865581748e62a91075edb89024d94d9c13cf36c50976d68bb46a9462&scene=21#wechat_redirect)
+[关于某L疗法，我的回应](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449443&idx=1&sn=c6d23e5d84058d42830c1e1e3229832d&chksm=87d575d8b0a2fccec6ba865581748e62a91075edb89024d94d9c13cf36c50976d68bb46a9462&scene=21#wechat_redirect)  
 
-[哺光仪/补光仪可以预防或控制儿童近视吗？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650435670&idx=1&sn=835358212ccda3eb76a8a40d5cffdcc3&chksm=87d5a3adb0a22abbde216347fbcbe496d44c8ce3d2ae769e7b153fd4d5ae0ce858723ac87e7c&scene=21#wechat_redirect)
+[哺光仪/补光仪可以预防或控制儿童近视吗？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650435670&idx=1&sn=835358212ccda3eb76a8a40d5cffdcc3&chksm=87d5a3adb0a22abbde216347fbcbe496d44c8ce3d2ae769e7b153fd4d5ae0ce858723ac87e7c&scene=21#wechat_redirect)  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7666,7 +7676,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|13岁男孩不近视的秘密！
 =================
@@ -7687,7 +7696,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BzIt57xII2F6ceiamJIGAk4jEL7MlhvMUlAwpdzajasUuEHqjJWyMsSuD7icTTBibQ8lNL9QWEbfHxA/640?wx_fmt=png)
 
-
+  
 
 初始眼轴分析
 
@@ -7707,11 +7716,11 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BzIt57xII2F6ceiamJIGAk4eNm5xOkexBGshBJONcdryT6nrzr6DHk9jUtwIWAJk1GEKd3YlZ46mw/640?wx_fmt=png)
 
-*   20年5月21年5月 右眼轴增幅0.4毫米、左眼轴增幅0.2毫米，右眼轴发育仍然快。**对于这种眼轴>50%同龄儿童的案例，0.01%阿托品的疗效微弱**。
+*   20年5月-21年5月 右眼轴增幅0.4毫米、左眼轴增幅0.2毫米，右眼轴发育仍然快。**对于这种眼轴>50%同龄儿童的案例，0.01%阿托品的疗效微弱**。
 
 *   21年3月 治疗方案调整为右眼0.05%阿托品滴眼液、左眼继续0.01%阿托品滴眼液治疗；
 
-*   21年5月22年5月 右眼轴一整年不涨、左眼轴一年增幅0.06毫米，控制好；
+*   21年5月-22年5月 右眼轴一整年不涨、左眼轴一年增幅0.06毫米，控制好；
 
 *   22年8月和22年11月 **秋冬季突然出现眼轴发育加速**。22年11月 治疗方案调整为双眼0.05%阿托品滴眼液、每周使用一次双眼0.3%阿托品滴眼液（中浓度）。
 
@@ -7737,11 +7746,13 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 *   0.05%阿托品滴眼液治疗很安全，**常见的两个副作用：户外阳光刺眼**（用药一个月会适应）和**看书本小字吃力**（反转拍训练会缓解），都不影响生活和学习；
 
-*   近视前期的低浓度阿托品治疗，可以减缓眼轴发育速度、推迟近视度数的出现，把裸眼视力维持在0.8以上（散光儿童除外）至少36个月。这样孩子白天不戴框架眼镜，也不戴OK镜，省钱省事。
+*   近视前期的低浓度阿托品治疗，可以减缓眼轴发育速度、推迟近视度数的出现，把裸眼视力维持在0.8以上（散光儿童除外）至少3-6个月。这样孩子白天不戴框架眼镜，也不戴OK镜，省钱省事。
 
 *   低浓度阿托品治疗需要**持续到身高和眼轴发育停止**（身高和眼轴都一整年不增长），这样停药之后不会出现眼轴反弹。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
+
+  
 
 
 
@@ -7756,8 +7767,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 老年爸妈的精神病——囤积症
 =============
@@ -7770,7 +7779,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 在美国留学时，在同一个医学院，大陆来的留学生和访问学者们都彼此相识，甚至租房第一站都是那几个公寓，经常做邻居。于是，跟着孩子们来美国访学的老年人就成了独特风景线。
 
-这些访问学者通常是来自国内大学的讲师、副教授等，工作体面、收入不差。他们的父母，都是挨过饿、受过穷的5060后。这些老头老太太一踏上万恶资本主义的领土，纷纷爱上了捡垃圾。每天早出晚归，跟当地的流浪汉抢垃圾，甚至去偷当地居民积攒的塑料瓶，还大摇大摆进入当地高中，等着孩子们打完篮球就一哄而上抢塑料瓶。
+这些访问学者通常是来自国内大学的讲师、副教授等，工作体面、收入不差。他们的父母，都是挨过饿、受过穷的50-60后。这些老头老太太一踏上万恶资本主义的领土，纷纷爱上了捡垃圾。每天早出晚归，跟当地的流浪汉抢垃圾，甚至去偷当地居民积攒的塑料瓶，还大摇大摆进入当地高中，等着孩子们打完篮球就一哄而上抢塑料瓶。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSM4ASvfB7vNlE8vcqfl8KrGZwaboynCH0Kia9ndiamwSaXBwI0kiagqAibKbrKicL6UZ9qEXK09HzuEg/640?wx_fmt=png)
 
@@ -7786,6 +7795,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7800,7 +7810,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 60后和80后的价值观冲突
 =============
@@ -7856,9 +7865,9 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 我认为，60后活得很累，牺牲幸福感去攒钱，过得抠抠揉揉，把自己陷入婚姻和亲戚的泥潭，然后还要把80后拉下来，继续为奴为牛马，每一天都觉得自己伟大。
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
 
-
+  
 
 
 
@@ -7899,6 +7908,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7913,7 +7923,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 哺光仪（补光仪）导致的儿童视网膜损伤！
 ===================
@@ -7950,14 +7959,15 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 **▼**
 
-[关于某L疗法，我的回应](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449443&idx=1&sn=c6d23e5d84058d42830c1e1e3229832d&chksm=87d575d8b0a2fccec6ba865581748e62a91075edb89024d94d9c13cf36c50976d68bb46a9462&scene=21#wechat_redirect)
+[关于某L疗法，我的回应](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449443&idx=1&sn=c6d23e5d84058d42830c1e1e3229832d&chksm=87d575d8b0a2fccec6ba865581748e62a91075edb89024d94d9c13cf36c50976d68bb46a9462&scene=21#wechat_redirect)  
 
-[哺光仪/补光仪可以预防或控制儿童近视吗？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650435670&idx=1&sn=835358212ccda3eb76a8a40d5cffdcc3&chksm=87d5a3adb0a22abbde216347fbcbe496d44c8ce3d2ae769e7b153fd4d5ae0ce858723ac87e7c&scene=21#wechat_redirect)
+[哺光仪/补光仪可以预防或控制儿童近视吗？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650435670&idx=1&sn=835358212ccda3eb76a8a40d5cffdcc3&chksm=87d5a3adb0a22abbde216347fbcbe496d44c8ce3d2ae769e7b153fd4d5ae0ce858723ac87e7c&scene=21#wechat_redirect)  
 
 [关于哺光仪](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650449939&idx=2&sn=d3c14acb312fafd4cc499605b06ce3be&chksm=87d57be8b0a2f2fef6393c040365d4e3f3475d7613aedf0c0e53cc6b055842567df3987f1677&scene=21#wechat_redirect)
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -7972,14 +7982,13 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 高考成绩与人生成绩不成正比
 =============
 
 原文地址：[高考成绩与人生成绩不成正比](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650450154&idx=2&sn=7169e1a85b9b92c9cdbcbdf24a926bfa&chksm=579598654a5865ba67184b0d375c3b27ef41d7afd2fa3c18701daf9428282d98721179ab573c&scene=27#wechat_redirect)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DdUGtEkGnvJGHnd9DJ4LIXk2BJuMbCFOJ6zyd3pjySNMic1z7C3wfNBia8dHsT0NGN2JqibSlM5t04Q/640?wx_fmt=png)
+
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcicUEfvXegTcHTHiaJNg82HfdLGhMQkFpcx6g6VQjTSb5IXoM4gHuiaPQQ/640?wx_fmt=png)
 
@@ -7989,7 +7998,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 我是整个家族最会做题的，但不是最有钱和最幸福的。
 
-我有几个表弟是初中毕业，有的接手家里生意，有的职高毕业当蓝领，有的是装修队包工头。他们活得比我快乐，都有23个孩子，下班吃吃喝喝，节假日自驾游。
+我有几个表弟是初中毕业，有的接手家里生意，有的职高毕业当蓝领，有的是装修队包工头。他们活得比我快乐，都有2-3个孩子，下班吃吃喝喝，节假日自驾游。
 
 我博士毕业，几十年殚精竭虑，晚上失眠，白天加班，忙忙碌碌偏头痛。人生目标并不崇高，**只求不猝死、平安退休**。
 
@@ -7997,17 +8006,17 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 我的智商够不到清华，但在医学院也是出类拔萃的了，咱也曾是优秀毕业生。但是，我观察了身边的博士们，大部分既不会谈恋爱，也挣不到大钱。
 
-我那些在三甲医院的同学们，熬到主治，年薪3070万，熬到主任才能100万以上。结婚晚，生孩子晚，忙得顾不上家，更别提辅导孩子写作业了。就算当了主任，也不敢退休，因为要挣钱帮孩子供房。
+我那些在三甲医院的同学们，熬到主治，年薪30-70万，熬到主任才能100万以上。结婚晚，生孩子晚，忙得顾不上家，更别提辅导孩子写作业了。就算当了主任，也不敢退休，因为要挣钱帮孩子供房。  
 
 如果孩子不是学霸，也不意味着人生完了。大部分学霸都呆，傲慢任性，不擅长经营婚姻，也不擅长职场斗争。所以，**高智商的最终是打工仔，高情商的才是老板**。
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-功利地讲，我们培养孩子的成功目标有两个：**嫁/娶聪明伴侣，不啃老。**
+功利地讲，我们培养孩子的成功目标有两个：**嫁/娶聪明伴侣，不啃老。**  
 
 如果孩子不擅长考试（尤其爸妈的智商不高），不要苛求他们成为学霸。多给孩子挣钱，让他们吸引智商更高的伴侣，提高后代质量。聪明的后代，挣钱才快。       
 
-求稳。**先确保孩子有求偶优势**（体型好、性格好、谈吐幽默、有婚房），然后争取孩子能自食其力，会做小生意，能当小领导。
+求稳。**先确保孩子有求偶优势**（体型好、性格好、谈吐幽默、有婚房），然后争取孩子能自食其力，会做小生意，能当小领导。  
 
 **人生有爱和长寿最重要。**
 
@@ -8015,6 +8024,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8029,7 +8039,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 300万年薪定律
 ========
@@ -8058,6 +8067,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8072,7 +8082,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|7岁半女孩近视50度，眼轴22和22.18，该怎么办？
 ================================
@@ -8102,7 +8111,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 眼轴分析
 
-与同龄女孩相比，**孩子的眼轴位于25%百分位，近视控制的压力不大**。需要每三个月测量眼轴，计算眼轴的发育速度。目前处于79岁的眼轴发育高峰期，进入秋冬，眼轴发育更快。
+与同龄女孩相比，**孩子的眼轴位于25%百分位，近视控制的压力不大**。需要每三个月测量眼轴，计算眼轴的发育速度。目前处于7-9岁的眼轴发育高峰期，进入秋冬，眼轴发育更快。
 
 【您孩子的眼轴控制目标】：成年眼轴<25毫米，每年的眼轴增幅不超过0.35毫米即可。
 
@@ -8115,6 +8124,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8129,7 +8139,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 哪些眼睛疾病需要预防和筛查？
 ==============
@@ -8142,9 +8151,9 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 希望大家养成**每年看眼科医**生的好习惯。
 
-由于我们还是发展中国家，大家不重视眼睛健康，只有配眼镜时才想到眼科医生。
+由于我们还是发展中国家，大家不重视眼睛健康，只有配眼镜时才想到眼科医生。  
 
-随着中国人预期寿命的延长，人们将来活到8090岁是很常见的现象。
+随着中国人预期寿命的延长，人们将来活到80-90岁是很常见的现象。
 
 而这时，**决定生活质量**的两个重要因素：视力、心肺功能。
 
@@ -8154,7 +8163,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 近视
 
-近视是东亚人群的基因不完美。东亚人的近视患病率约超过白人4倍。
+近视是东亚人群的基因不完美。东亚人的近视患病率约超过白人4倍。  
 
 循证医学证据表明，童年坚持**每天户外活动至少2小时**，可以预防或推迟近视的发病。这是免费而科学的一级预防！
 
@@ -8192,10 +8201,11 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-眼睛属于**大脑的分支****，不可再****生**。爱护眼睛，我们一起看得远、看得久。
+眼睛属于**大脑的分支****，不可再****生**。爱护眼睛，我们一起看得远、看得久。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8210,7 +8220,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 富二代创业的唐僧
 ========
@@ -8237,7 +8246,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 嫌八戒丑陋，却对八戒的马屁很受用。
 
-把白龙马和沙僧当做牛马工具人，给爷加班！
+把白龙马和沙僧当做牛马工具人，给爷加班！  
 
 
 唐僧的事业
@@ -8250,6 +8259,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8264,7 +8274,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 重要的婴幼儿眼睛保健知识
 ============
@@ -8282,9 +8291,9 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 早戴太阳镜
 
-太阳光的紫外线能量很高，**日积月累的暴晒是导致老年性白内障的主要原因**。而且儿童时期在太阳下暴晒，会诱发眼睑皮肤基底细胞癌，翼状胬肉的风险也增加40倍。
+太阳光的紫外线能量很高，**日积月累的暴晒是导致老年性白内障的主要原因**。而且儿童时期在太阳下暴晒，会诱发眼睑皮肤基底细胞癌，翼状胬肉的风险也增加40倍。  
 
-太阳帽只能遮挡50%的太阳光，地面反射的太阳光仍然可以进入眼内。因此太阳镜是不可替代的。目前已经有3月龄宝宝的国产太阳镜了，大家自己选。
+太阳帽只能遮挡50%的太阳光，地面反射的太阳光仍然可以进入眼内。因此太阳镜是不可替代的。目前已经有3月龄宝宝的国产太阳镜了，大家自己选。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4ClYy2DyK9SzysrjS5C4Kb1UFN2nFia3aNpWOOWFWuNicM1FECB7ArYjPuInyiaNDq2MqU6uDWNQ0F6Q/640?wx_fmt=jpeg)
 
@@ -8293,7 +8302,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 每天2小时的阳光时间
 
-户外活动预防近视（阳光是重点），这是唯一经过循证医学证据支持的、科学有效的办法！最简单最省钱！
+户外活动预防近视（阳光是重点），这是唯一经过循证医学证据支持的、科学有效的办法！最简单最省钱！  
 
 建议家长们一定要保障孩子们的户外活动时间，每天2小时。婴儿3月龄就可以开始每天2小时的阳光时间了。**在紫外线辐射强烈的夏季和下雪天，也需要戴太阳镜**，每天户外活动不超过4小时。
 
@@ -8312,6 +8321,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8326,7 +8336,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 高考还能改变命运吗？
 ==========
@@ -8444,6 +8453,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8458,7 +8468,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 案例分析|高度近视的成人每年筛查需要散瞳吗？不近视的成人也要查眼轴？
 ==================================
@@ -8475,7 +8484,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 **老梁答疑**
 
-高度近视人群，在40岁之后，需要排查视网膜周边是否有【变形区】和【裂孔】。
+高度近视人群，在40岁之后，需要排查视网膜周边是否有【变形区】和【裂孔】。  
 
 传统办法是滴托吡卡胺滴眼液，把瞳孔散大，医生检查周边视网膜
 
@@ -8499,6 +8508,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
+  
 
 
 
@@ -8513,7 +8523,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 你的孩子不是假性近视！
 ===========
@@ -8526,45 +8535,47 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 假性近视是上个世纪40年代美国眼科医生曾经用过的名词，现在已经不再使用了。它是指儿童屈光发育中的一种状态：**不散瞳验光时，球镜显示近视（S值为负），散瞳验光之后，球镜显示远视（S值为正）**。
 
-因此家长们误以为孩子的近视是假性的、可逆的。这是不对的。
+因此家长们误以为孩子的近视是假性的、可逆的。这是不对的。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-1\. 中国儿童几乎逃不开近视
-深度学习：[中国儿童几乎逃不开近视](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650436285&idx=1&sn=26888c34b0ab29d60405fbddde86dc23&chksm=87d5a146b0a2285024b0944e9d841543973657e4f7eb0234bd865cff77e8c482e2f82e066ea2&scene=21#wechat_redirect)
+1\. 中国儿童几乎逃不开近视  
+深度学习：[中国儿童几乎逃不开近视](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650436285&idx=1&sn=26888c34b0ab29d60405fbddde86dc23&chksm=87d5a146b0a2285024b0944e9d841543973657e4f7eb0234bd865cff77e8c482e2f82e066ea2&scene=21#wechat_redirect)  
 
-2\. 近视几岁发病，儿童近视控制是否有效，成年近视是否有致盲风险，全看眼轴。
+2\. 近视几岁发病，儿童近视控制是否有效，成年近视是否有致盲风险，全看眼轴。  
 眼轴比验光结果更敏感。父母近视的儿童最好从3岁开始每年测量一次眼轴，通常**使用的仪器是IOLMaster**。
 
 01
 
 眼轴是什么？
 
-眼球的前后长度。近视的本质就是童年眼球生长失控，迅速变长、变大。近视度数越高，眼轴越长。眼轴超过25毫米，青光眼风险增加；超过26毫米，视网膜脱离风险增加。**眼轴越长，中年视力受损的可能性越大。**
+眼球的前后长度。近视的本质就是童年眼球生长失控，迅速变长、变大。近视度数越高，眼轴越长。眼轴超过25毫米，青光眼风险增加；超过26毫米，视网膜脱离风险增加。**眼轴越长，中年视力受损的可能性越大。**  
 
 02
 
 儿童眼轴的近视危险值
 
-根据我本人看的临床研究数据，粗略估算，十岁以内的东亚儿童，眼轴超过22毫米，通常是携带近视基因的，越早达到22毫米，近视发病越早。
+根据我本人看的临床研究数据，粗略估算，十岁以内的东亚儿童，眼轴超过22毫米，通常是携带近视基因的，越早达到22毫米，近视发病越早。  
 
-[延伸阅读：大陆儿童的正常眼轴是多少？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650426131&idx=2&sn=93d577c5a12392eeb24c7ae56cd5e3b6&chksm=87d598e8b0a211fe72fa876321edb463a2667cd3aad97665f3bde3a5139f6ce30314a9404236&scene=21#wechat_redirect)
+[延伸阅读：大陆儿童的正常眼轴是多少？](http://mp.weixin.qq.com/s?__biz=MzA4NTIwNjY3Ng==&mid=2650426131&idx=2&sn=93d577c5a12392eeb24c7ae56cd5e3b6&chksm=87d598e8b0a211fe72fa876321edb463a2667cd3aad97665f3bde3a5139f6ce30314a9404236&scene=21#wechat_redirect)  
 
 03
 
 眼轴生长速度
 
-眼轴的每年增幅超过0.2毫米，意味着近视基因激活；每年增幅超过0.4毫米，意味着近视处于快速进展期。
+眼轴的每年增幅超过0.2毫米，意味着近视基因激活；每年增幅超过0.4毫米，意味着近视处于快速进展期。  
 
 **例如儿童假性近视这种状态，带孩子去测量眼轴，超过22毫米可能性更大。**
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
-近视是致盲眼病。当儿童散瞳后的近视度数达到50度，家长就可以开始砸钱了。把钱花在正确的地方——**低浓度阿托品滴眼液和/或角膜塑形镜**，这两种的近视抑制效果最好，可以把每年的眼轴增幅压在最低。
+近视是致盲眼病。当儿童散瞳后的近视度数达到50度，家长就可以开始砸钱了。把钱花在正确的地方——**低浓度阿托品滴眼液和/或角膜塑形镜**，这两种的近视抑制效果最好，可以把每年的眼轴增幅压在最低。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_jpg/ibxAaMO0XO4ANNhV3AdN86CpbXpDB2YTgyWgib1Zfxcy3M1tLTic0gsGfsJxPPvL6XibpTavtLoDJRJOjMoMyDpwTA/640?wx_fmt=jpeg)
 
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
+![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)  
+
+  
 
 
 
@@ -8579,8 +8590,6 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 
 
-
-![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4CSJR0xHib0HEY1lvl7UrDoYlsSGXSRUj49CiaWBZaBRlj7NKWzTDCkOLGY0LIRhV12xJEmticxjdjLg/640?wx_fmt=png)
 
 已婚屎壳郎
 =====
@@ -8595,7 +8604,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 有些人看到两口子同吃同住，全家一起旅游散步，就认为是幸福婚姻了。
 
-然而，我身边没有几对幸福夫妻。更多的夫妻是彼此的囚徒，没有共同语言，不爱对方，只是离不了婚。
+然而，我身边没有几对幸福夫妻。更多的夫妻是彼此的囚徒，没有共同语言，不爱对方，只是离不了婚。  
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4BTZHoFaGASvav6CL7pSvticiaD8rp6GU5ibFKGWiaRNe70q7ibkAmbcxHZVwdEXZib68xtLH9wQoJHUHIQ/640?wx_fmt=png)
 
@@ -8613,7 +8622,7 @@ Meta分析研究发现（Ophthalmic Res. 2016），阻塞性呼吸睡眠暂停�
 
 ![](https://mmbiz.qpic.cn/mmbiz_png/ibxAaMO0XO4DZS1DooNwmoCzibSVBlLjmcvzaPRX3N6bW44upclPQfbJUd7OcKWSlOJ2VANuA8mnfCJ8lfFxnY7w/640?wx_fmt=png)
 
-
+  
 
 
 
